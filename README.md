@@ -9,8 +9,7 @@
 
 ## Inglés
 Estimadas familias: espero que todos estén bien. La semana pasada les dejé una ficha de tarea, sé que muchos la terminaron en clase, pero los que la tengan en casa, no se olviden de hacerla. Si la olvidaron en el cole, no pasa nada, se hará cuando volvamos.
-Vamos a repasar el vocabulario de la unidad 6 y lo haremos como en clase. Pincha en la imagen adjunta [Unit 6](../master/16-03-2020/Unit%206.jpg) y escucha el siguiente audio (Audio CD2. Track 28). No te olvides de repetir y señalar.
-Haz la ficha adjunta (U6 4th), lo mejor es que la imprimas, pero si no puedes, haz lo que puedas en una hoja. No hace falta que copies todo. 
+Vamos a repasar el vocabulario de la unidad 6 y lo haremos como en clase. Pincha en la imagen adjunta ([Unit 6](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/16-03-2020/Unit%206.jpg)) y escucha el siguiente audio ([Audio CD2. Track 28](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/16-03-2020/Audio%20CD2.%20Track%2028.mp3)). No te olvides de repetir y señalar.
 Haz el siguiente cuestionario. Pincha en el link: https://forms.gle/nSiuNNdCZy8Jv9V19 y resuelve las preguntas que ahí aparecen. Es muy sencillo y lo puedes hacer en ordenador, móvil o tablet. ¡No olvides escribir el nombre y tus apellidos!
 ### OPCIONAL
 Te propongo este trabalenguas: “Kitty caught the kitten in the kitchen” (lo tienes también adjunto, para que lo sepas pronunciar bien). Apréndetelo primero despacito, luego más y más rápido. Enséñaselo a tus padres, abuelos, primos… ¡a ver quién lo hace más rápido!
