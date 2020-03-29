@@ -96,7 +96,7 @@ Good morning! Espero que sigan bien. Quería agradecer a aquellos que me han ido
 
 ### EXTRA EXTRA
 
-6. Te dejo un enlace con juegos para que practiques, si quieres: https://learnenglishkids.britishcouncil.org/grammar-practice/past-simple-sentences
+6. Te dejo un enlace con juegos para que practiques, si quieres: [https://learnenglishkids.britishcouncil.org/grammar-practice/past-simple-sentences](https://learnenglishkids.britishcouncil.org/grammar-practice/past-simple-sentences)
 7. Como sé que por aquí hay muchos fans de Harry Potter, te dejo adjunto un jueguito. Tienen que contar y colorear siguiendo las instrucciones de la parte de debajo de la ficha. ([I spy_Harry Potter](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-03-2020/I%20spy_Harry%20Potter.pdf))
 
 Les recuerdo que todo esto que se propone es opcional y pueden hacerlo el día que quieran, pero les animo a ello. Cualquier duda que tengan, no duden en contactar conmigo.
