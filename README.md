@@ -9,16 +9,20 @@
 
 ## Inglés
 Estimadas familias: espero que todos estén bien. La semana pasada les dejé una ficha de tarea, sé que muchos la terminaron en clase, pero los que la tengan en casa, no se olviden de hacerla. Si la olvidaron en el cole, no pasa nada, se hará cuando volvamos.
-Vamos a repasar el vocabulario de la unidad 6 y lo haremos como en clase. Pincha en la imagen adjunta ([Unit 6](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/16-03-2020/Unit%206.jpg)) y escucha el siguiente audio ([Audio CD2. Track 28](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/16-03-2020/Audio%20CD2.%20Track%2028.mp3)). No te olvides de repetir y señalar.
-Haz el siguiente cuestionario. Pincha en el link: https://forms.gle/nSiuNNdCZy8Jv9V19 y resuelve las preguntas que ahí aparecen. Es muy sencillo y lo puedes hacer en ordenador, móvil o tablet. ¡No olvides escribir el nombre y tus apellidos!
+1. Vamos a repasar el vocabulario de la unidad 6 y lo haremos como en clase. Pincha en la imagen adjunta ([Unit 6](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/16-03-2020/Unit%206.jpg)) y escucha el siguiente audio ([Audio CD2. Track 28](https://drive.google.com/file/d/1wAmg5Cm3Pk3J1jQt7VHKXLkWmqPw-H6Y/view?usp=sharing)). No te olvides de repetir y señalar.
+2. Haz la ficha adjunta ([U6 4th](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/U6%204th.pdf)), lo mejor es que la imprimas, pero si no puedes, haz lo que puedas en una hoja. No hace falta que copies todo. 
+3. Haz el siguiente cuestionario. Pincha en el link: https://forms.gle/nSiuNNdCZy8Jv9V19 y resuelve las preguntas que ahí aparecen. Es muy sencillo y lo puedes hacer en ordenador, móvil o tablet. ¡No olvides escribir el nombre y tus apellidos!
+
 ### OPCIONAL
-Te propongo este trabalenguas: “Kitty caught the kitten in the kitchen” (lo tienes también adjunto, para que lo sepas pronunciar bien). Apréndetelo primero despacito, luego más y más rápido. Enséñaselo a tus padres, abuelos, primos… ¡a ver quién lo hace más rápido!
-Y ya esto es para hacer un poco de Educación Física practicando Inglés. Anímate, quizá tu familia también quiera: https://www.youtube.com/watch?v=JEIHogpVJ1k
+
+4. Te propongo este trabalenguas: “Kitty caught the kitten in the kitchen” (lo tienes también [adjunto](https://drive.google.com/file/d/12-4Bccb5BO5o--gzwhgXQxcddN2-_ds1/view?usp=sharing), para que lo sepas pronunciar bien). Apréndetelo primero despacito, luego más y más rápido. Enséñaselo a tus padres, abuelos, primos… ¡a ver quién lo hace más rápido!
+5. Y ya esto es para hacer un poco de Educación Física practicando Inglés. Anímate, quizá tu familia también quiera: https://www.youtube.com/watch?v=JEIHogpVJ1k
+
 ## Francés
 Esta es la tarea de Francés para hacer entre el martes y el miércoles. 
-Leer el cómic de la página 42 del libro del alumno (el de color). 
-Hacer la actividad 2 de la página 43 del mismo libro: deben completar con los artículos (le, la, l' o les) los diferentes sustantivos que vienen con su imagen correspondiente. Después corregir con la ayuda de la fotocopia adjunta. 
-Hacer los ejercicios 1 y 3 de la página 28 del libro de actividades. En el caso de no tener el libro, se adjunta el tema escaneado. Lo ideal sería imprimir las páginas según las vaya marcando, pero en el caso de que no sea posible pueden hacer los ejercicios en un folio. 
+1. Leer el cómic de la página 42 del libro del alumno (el de color). 
+2. Hacer la actividad 2 de la página 43 del mismo libro: deben completar con los artículos (le, la, l' o les) los diferentes sustantivos que vienen con su imagen correspondiente. Después corregir con la ayuda de la fotocopia [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/Ejercicio%202%20p%C3%A1gina%2043%20correcci%C3%B3n%20.pdf). 
+3. Hacer los ejercicios 1 y 3 de la página 28 del libro de actividades. En el caso de no tener el libro, se [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/Libro%20de%20actividades%20tema%206.pdf) el tema escaneado. Lo ideal sería imprimir las páginas según las vaya marcando, pero en el caso de que no sea posible pueden hacer los ejercicios en un folio. 
 Libro alumno
 
 # 18/03/2020
