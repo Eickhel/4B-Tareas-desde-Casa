@@ -22,8 +22,9 @@ Estimadas familias: espero que todos estén bien. La semana pasada les dejé una
 Esta es la tarea de Francés para hacer entre el martes y el miércoles. 
 1. Leer el cómic de la página 42 del libro del alumno (el de color). 
 2. Hacer la actividad 2 de la página 43 del mismo libro: deben completar con los artículos (le, la, l' o les) los diferentes sustantivos que vienen con su imagen correspondiente. Después corregir con la ayuda de la fotocopia [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/Ejercicio%202%20p%C3%A1gina%2043%20correcci%C3%B3n%20.pdf). 
-3. Hacer los ejercicios 1 y 3 de la página 28 del libro de actividades. En el caso de no tener el libro, se [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/Libro%20de%20actividades%20tema%206.pdf) el tema escaneado. Lo ideal sería imprimir las páginas según las vaya marcando, pero en el caso de que no sea posible pueden hacer los ejercicios en un folio. 
-Libro alumno
+3. Hacer los ejercicios 1 y 3 de la página 28 del libro de actividades. En el caso de no tener el libro, se [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/Libro%20de%20actividades%20tema%206.pdf) el tema escaneado. Lo ideal sería imprimir las páginas según las vaya marcando, pero en el caso de que no sea posible pueden hacer los ejercicios en un folio.
+
+[Libro alumno](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-03-2020/Franc%C3%A9s%20libro%20del%20alumno%204%C2%BA.pdf)
 
 # 18/03/2020
 ## Inglés
