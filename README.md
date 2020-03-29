@@ -16,7 +16,7 @@ Estimadas familias: espero que todos estén bien. La semana pasada les dejé una
 ### OPCIONAL
 
 4. Te propongo este trabalenguas: “Kitty caught the kitten in the kitchen” (lo tienes también [adjunto](https://drive.google.com/file/d/12-4Bccb5BO5o--gzwhgXQxcddN2-_ds1/view?usp=sharing), para que lo sepas pronunciar bien). Apréndetelo primero despacito, luego más y más rápido. Enséñaselo a tus padres, abuelos, primos… ¡a ver quién lo hace más rápido!
-5. Y ya esto es para hacer un poco de Educación Física practicando Inglés. Anímate, quizá tu familia también quiera: https://www.youtube.com/watch?v=JEIHogpVJ1k
+5. Y ya esto es para hacer un poco de Educación Física practicando Inglés. Anímate, quizá tu familia también quiera: [https://www.youtube.com/watch?v=JEIHogpVJ1k](https://www.youtube.com/watch?v=JEIHogpVJ1k)
 
 ## Francés
 Esta es la tarea de Francés para hacer entre el martes y el miércoles. 
@@ -28,10 +28,10 @@ Libro alumno
 # 18/03/2020
 ## Inglés
 ¡Hola a todos! ¿Qué tal les fue con el primer día de trabajo en casa de inglés? ¿Hicieron el trabalenguas? ¿Alguien se animó a bailar? Espero que sí... ¡CONSEJITO! Sigue bien el orden de lo que te propongo de trabajo en casa, que si lo haces en otro orden te va a resultar difícil.
-Vamos a trabajar la historia de la unidad. Para ello, primero vamos a ver algunas palabras nuevas de vocabulario con el PDF adjunto. (Vocabulary_Story)
-Ahora es el momento de leerla, te adjunto el audio por si quieres hacerlo como en clase. (Audio: Audio CD2. Track 31 e Historia: Unit 6_story). Lo lees a la vez que lo oyes. Este es un poco más difícil, tómate tu tiempo, mira bien los dibujos y léelo las veces que quieras que voy a hacerte preguntas de la lectura.
-¡Vamos a hacer un juego! Pincha este enlace y haz lo que se te pida. No pongas tu nombre, invéntate un nombre divertido y si es en inglés, ¡mejor! Lee bien todo, hay preguntas un poco “trampa”. Tienes tiempo, pero es bastante, no te apures y fíjate bien. Yo ya lo hice, a ver si sacan más nota que yo: https://kahoot.it/challenge/0879225?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1584471202803
-Por último, te mando los dibujos del vocabulario. Puedes imprimirlos, pegarlos en una hoja y escribir el nombre al lado. Cuando lo tengas, lo puedes colorear y estudiártelo. Lo tienes adjunto también. (Cortar colorear y escribir). Si no tienes impresora, los puedes dibujar.
+1. Vamos a trabajar la historia de la unidad. Para ello, primero vamos a ver algunas palabras nuevas de vocabulario con el PDF adjunto. ([Vocabulary_Story](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/18-03-2020/Vocabulary_Story.pdf))
+2. Ahora es el momento de leerla, te adjunto el audio por si quieres hacerlo como en clase. (Audio: [Audio CD2. Track 31](https://drive.google.com/file/d/1empdGzNAYl9CyUOOHn6KRqxNDQXbGUuP/view?usp=sharing) e Historia: [Unit 6_story](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/18-03-2020/Unit%206_story.jpg)). Lo lees a la vez que lo oyes. Este es un poco más difícil, tómate tu tiempo, mira bien los dibujos y léelo las veces que quieras que voy a hacerte preguntas de la lectura.
+3. ¡Vamos a hacer un juego! Pincha este enlace y haz lo que se te pida. No pongas tu nombre, invéntate un nombre divertido y si es en inglés, ¡mejor! Lee bien todo, hay preguntas un poco “trampa”. Tienes tiempo, pero es bastante, no te apures y fíjate bien. Yo ya lo hice, a ver si sacan más nota que yo: [https://kahoot.it/challenge/0879225?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1584471202803](https://kahoot.it/challenge/0879225?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1584471202803)
+4. Por último, te mando los dibujos del vocabulario. Puedes imprimirlos, pegarlos en una hoja y escribir el nombre al lado. Cuando lo tengas, lo puedes colorear y estudiártelo. Lo tienes adjunto también. ([Cortar colorear y escribir](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/18-03-2020/Cortar%20colorear%20y%20escribir.pdf)). Si no tienes impresora, los puedes dibujar.
 
 ### EXTRA EXTRA
 
