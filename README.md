@@ -1,5 +1,8 @@
 4ºB Tareas desde Casa
 
+* auto-gen TOC:
+{:toc}
+
 # 30/03/2020
 ## Lengua
 “Siempre hay que ver el lado bueno de las cosas” Debes contar cuatro cosas buenas que hayan sucedido como consecuencia de esta situació que vivimos (mínimo tres líneas de cada una) Haz algún dibujo relacionado con lo escrito.
