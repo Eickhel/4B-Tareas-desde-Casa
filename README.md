@@ -153,3 +153,13 @@ Deben marcar la opción personalisée para escribir los números que quieren tra
 1. He hecho una pequeña historia que te animo a que veas. Tienes que pinchar el enlace e ir clicando en los números de cada viñeta y leer lo que pone, ¡esto es importante!. Cuando acabes, le das a la flecha y ves la siguiente. [https://view.genial.ly/5e7c97347ef4b40d8d187f8b/interactive-image-light-energy](https://view.genial.ly/5e7c97347ef4b40d8d187f8b/interactive-image-light-energy)
 2. En la última parte, verás que te propongo hacer un mapping, lo tienes adjunto (Mapping light energy). Si no tienes impresora, lo puedes hacer a mano.
 3. Por último, te dejo este vídeo, es como los que vemos en clase: [https://www.youtube.com/watch?v=d7yTlp4gBTI](https://www.youtube.com/watch?v=d7yTlp4gBTI)
+
+# 30/03/2020
+## Lengua
+“Siempre hay que ver el lado bueno de las cosas” Debes contar cuatro cosas buenas que hayan sucedido como consecuencia de esta situació que vivimos (mínimo tres líneas de cada una) Haz algún dibujo relacionado con lo escrito.
+
+## Matemáticas
+“Diferentes maneras de medir” Debes medir, con la medida que te damos, los siguientes objetos de la casa. Medir con palmos: la mesa del comedor, el escritorio y la mesa de la cocina. Medir con la regla: un libro, un cuaderno, un bolígrafo y una goma. Medir con pasos: el salón y la cocina (largo y ancho) Debes hacer un dibujo del objeto y colocar al lado su medida correspondiente.
+
+## Inglés
+¡Hola! Tienen disponible actividades de Inglés en Snappet para su trabajo por si les apetece. Un abrazo.
