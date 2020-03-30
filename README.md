@@ -22,6 +22,16 @@
 
 Un fuerte abrazo virtual a todos
 
+## Francés
+Buenas tardes, 
+Espero que estén todos bien. 
+Para trabajar francés, durante el martes y el miércoles, les propongo hacer esta [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/30-03-2020/Franc%C3%A9s%204%C2%BA.pdf) de repaso que consta de tres ejercicios: 
+1. Une cada sustantivo con su artículo correspondiente. Ej: La télévision. 
+2. Lee las frases y escribe el nombre de cada niño debajo de la imagen correspondiente. Ej: 1. Dorian. 
+3. Completa según tus gustos utilizando las expresiones j'adore, j'aime beaucoup, j'aime, je n'aime pas, je déteste. Ej: J'aime le football. 
+Les recuerdo que, para aquellos que lo están haciendo en un folio, no es necesario copiar todo el ejercicio, solamente el enunciado, el número y la respuesta. 
+Gracias, ánimo y un saludo.
+
 
 # 30/03/2020
 ## Lengua
