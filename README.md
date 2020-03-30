@@ -10,6 +10,18 @@
 ## Matemáticas
 “Diferentes maneras de medir” Debes medir, con la medida que te damos, los siguientes objetos de la casa. Medir con palmos: la mesa del comedor, el escritorio y la mesa de la cocina. Medir con la regla: un libro, un cuaderno, un bolígrafo y una goma. Medir con pasos: el salón y la cocina (largo y ancho) Debes hacer un dibujo del objeto y colocar al lado su medida correspondiente.
 
+# 31/03/2020
+### Inglés
+¡Hola de nuevo! ¿Qué tal llevas los verbos en pasado? Espero que bien porque hoy vamos a añadir unos cuantos más:
+
+1. Rellena la otra hoja de verbos y sigue los mismos pasos que la semana pasada ([My verbs list 2](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/30-03-2020/My%20verbs%20list%202.pdf)). Colorea de amarillo y de verde y búscalos en el enlace: [https://conjugador.reverso.net/conjugacion-ingles.html](https://conjugador.reverso.net/conjugacion-ingles.html)
+2. Tengo otro juego para ti, esta vez es una sopa de letras: [https://es.educaplay.com/recursos-educativos/5330671-past_tense_verb.html](https://es.educaplay.com/recursos-educativos/5330671-past_tense_verb.html). Tienes que buscar los verbos en pasado.
+3. Por último, vamos a hacer una comprensión auditiva prepara los colores en la mesa como en clase ([Listening part 5](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/30-03-2020/Listening%20part%205.pdf) y [Movers track 13](https://drive.google.com/file/d/1FJOjtly-e3r0d2hoIEVAyyqOisWGcoj9/view?usp=sharing)). Puedes imprimirla y colorear lo que se te pide y si no tienes impresora, no te preocupes, puedes apuntar lo que coloreas y escribir color al lado. (por ejemplo: apple -> red)
+4. Ahora ha llegado el momento de mover el esqueleto: [https://www.youtube.com/watch?v=BQ9q4U2P3ig](https://www.youtube.com/watch?v=BQ9q4U2P3ig)
+ 
+
+Un fuerte abrazo virtual a todos
+
 
 # 30/03/2020
 ## Lengua
@@ -20,17 +32,6 @@ Hoy te propongo hacer un poco de Snappet: unidad 7 apartado 6 y 7
 
 ## Inglés
 ¡Hola! Tienen disponible actividades de Inglés en Snappet para su trabajo por si les apetece. Un abrazo.
-
-### Correo de las 16:11
-¡Hola de nuevo! ¿Qué tal llevas los verbos en pasado? Espero que bien porque hoy vamos a añadir unos cuantos más:
-
-1. Rellena la otra hoja de verbos y sigue los mismos pasos que la semana pasada ([My verbs list 2](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/30-03-2020/My%20verbs%20list%202.pdf)). Colorea de amarillo y de verde y búscalos en el enlace: [https://conjugador.reverso.net/conjugacion-ingles.html](https://conjugador.reverso.net/conjugacion-ingles.html)
-2. Tengo otro juego para ti, esta vez es una sopa de letras: [https://es.educaplay.com/recursos-educativos/5330671-past_tense_verb.html](https://es.educaplay.com/recursos-educativos/5330671-past_tense_verb.html). Tienes que buscar los verbos en pasado.
-3. Por último, vamos a hacer una comprensión auditiva prepara los colores en la mesa como en clase ([Listening part 5](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/30-03-2020/Listening%20part%205.pdf) y [Movers track 13](https://drive.google.com/file/d/1FJOjtly-e3r0d2hoIEVAyyqOisWGcoj9/view?usp=sharing)). Puedes imprimirla y colorear lo que se te pide y si no tienes impresora, no te preocupes, puedes apuntar lo que coloreas y escribir color al lado. (por ejemplo: apple -> red)
-4. Ahora ha llegado el momento de mover el esqueleto: [https://www.youtube.com/watch?v=BQ9q4U2P3ig](https://www.youtube.com/watch?v=BQ9q4U2P3ig)
- 
-
-Un fuerte abrazo virtual a todos
 
 
 # 26/03/2020
