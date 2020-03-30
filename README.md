@@ -11,7 +11,7 @@
 “Diferentes maneras de medir” Debes medir, con la medida que te damos, los siguientes objetos de la casa. Medir con palmos: la mesa del comedor, el escritorio y la mesa de la cocina. Medir con la regla: un libro, un cuaderno, un bolígrafo y una goma. Medir con pasos: el salón y la cocina (largo y ancho) Debes hacer un dibujo del objeto y colocar al lado su medida correspondiente.
 
 # 31/03/2020
-### Inglés
+## Inglés
 ¡Hola de nuevo! ¿Qué tal llevas los verbos en pasado? Espero que bien porque hoy vamos a añadir unos cuantos más:
 
 1. Rellena la otra hoja de verbos y sigue los mismos pasos que la semana pasada ([My verbs list 2](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/30-03-2020/My%20verbs%20list%202.pdf)). Colorea de amarillo y de verde y búscalos en el enlace: [https://conjugador.reverso.net/conjugacion-ingles.html](https://conjugador.reverso.net/conjugacion-ingles.html)
