@@ -3,12 +3,20 @@
 * auto-gen TOC:
 {:toc}
 
-# 30/03/2020
+# 01/04/2020
 ## Lengua
 “Siempre hay que ver el lado bueno de las cosas” Debes contar cuatro cosas buenas que hayan sucedido como consecuencia de esta situació que vivimos (mínimo tres líneas de cada una) Haz algún dibujo relacionado con lo escrito.
 
 ## Matemáticas
 “Diferentes maneras de medir” Debes medir, con la medida que te damos, los siguientes objetos de la casa. Medir con palmos: la mesa del comedor, el escritorio y la mesa de la cocina. Medir con la regla: un libro, un cuaderno, un bolígrafo y una goma. Medir con pasos: el salón y la cocina (largo y ancho) Debes hacer un dibujo del objeto y colocar al lado su medida correspondiente.
+
+
+# 30/03/2020
+## Lengua
+Hoy te propongo hacer un poco de Snappet: unidad 8 apartado 3 y 4
+
+## Matemáticas
+Hoy te propongo hacer un poco de Snappet: unidad 7 apartado 6 y 7
 
 ## Inglés
 ¡Hola! Tienen disponible actividades de Inglés en Snappet para su trabajo por si les apetece. Un abrazo.
