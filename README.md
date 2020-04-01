@@ -10,6 +10,21 @@
 ## Matemáticas
 “Diferentes maneras de medir” Debes medir, con la medida que te damos, los siguientes objetos de la casa. Medir con palmos: la mesa del comedor, el escritorio y la mesa de la cocina. Medir con la regla: un libro, un cuaderno, un bolígrafo y una goma. Medir con pasos: el salón y la cocina (largo y ancho) Debes hacer un dibujo del objeto y colocar al lado su medida correspondiente.
 
+## Inglés
+¡Hola, hola! Ya queda poquito para las vacaciones de Semana Santa… así que el trabajo en casa de estos días será de ¡EASTER!
+
+1. Tienes una [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/01-04-2020/Happy%20easter.pdf) adjunta para que hagas si te apetece (Happy Easter)
+2. Snappet seguirá abierto por si quieres seguir trabajando
+3. Mira este vídeo por si quieres hacer esta manualidad con tus padres, hermanos, abuelos… [https://www.youtube.com/watch?v=hMpD3LOk0OM](https://www.youtube.com/watch?v=hMpD3LOk0OM)
+4. Descarga el archivo que se llama [¡SORPRESA!](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/01-04-2020/%C2%A1SORPRESA!.jpg) que yo ya hice la manualidad.
+
+Se me ha ocurrido hacer una cosa para darnos ánimos los unos a los otros, pero participa solo si te apetece. Haz un dibujo y escribe algo en inglés bonito para otro compañero, NO escribas tu nombre. Cuando lo hayas hecho, pídele a mamá, papá, abuelos… que me envíen la foto a mi correo [sleon@lasallesanildefonso.es](sleon@lasallesanildefonso.es). Cuando lo tenga, te enviaré de otro compañero y así entre todos nos sentiremos más juntos.
+
+¡Felices vacaciones, seguimos en contacto a la vuelta!
+
+Un fuerte abrazo
+
+
 # 31/03/2020
 ## Inglés
 ¡Hola de nuevo! ¿Qué tal llevas los verbos en pasado? Espero que bien porque hoy vamos a añadir unos cuantos más:
