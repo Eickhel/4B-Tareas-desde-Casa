@@ -24,6 +24,16 @@ Se me ha ocurrido hacer una cosa para darnos ánimos los unos a los otros, pero 
 
 Un fuerte abrazo
 
+## Francés
+Buenas tardes, 
+Espero que todos estén bien.  
+Para trabajar el resto de la semana les propongo:
+
+- Leer la [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/01-04-2020/J%C2%B4aime%20%2B%20verbos%20en%20infinitivo.pdf) adjunta y hacer la actividad propuesta, que consiste en leer el texto e indicar si las frases son verdaderas o falsas. 
+- Hacer la página 31 del libro de actividades, excepto el número 16. 
+
+Gracias, un saludo. 
+
 
 # 31/03/2020
 ## Inglés
