@@ -33,11 +33,11 @@ Pues ya saben, si se animan, tienen hasta el lunes 13 de abril.
 
 [https://cookpad.com/es/recetas/2390253-torrijas-al-toque-canario](https://cookpad.com/es/recetas/2390253-torrijas-al-toque-canario)
 
-[www.youtube.com/watch?v=fx_eUrEuHCI&feature=youtu.be](www.youtube.com/watch?v=fx_eUrEuHCI&feature=youtu.be)
+[https://www.youtube.com/watch?v=fx_eUrEuHCI&feature=youtu.be](https://www.youtube.com/watch?v=fx_eUrEuHCI&feature=youtu.be)
 
-[www.elrincondeafi.es/postres/torrijas](www.elrincondeafi.es/postres/torrijas)
+[https://www.elrincondeafi.es/postres/torrijas](https://www.elrincondeafi.es/postres/torrijas)
 
-[www.gastronomiaycia.republica.com/2020/03/31/galletas-de-mantequilla-una-receta-rica-y-facil-que-pueden-hacer-los-ninos/](www.gastronomiaycia.republica.com/2020/03/31/galletas-de-mantequilla-una-receta-rica-y-facil-que-pueden-hacer-los-ninos/)
+[https://www.gastronomiaycia.republica.com/2020/03/31/galletas-de-mantequilla-una-receta-rica-y-facil-que-pueden-hacer-los-ninos/](https://www.gastronomiaycia.republica.com/2020/03/31/galletas-de-mantequilla-una-receta-rica-y-facil-que-pueden-hacer-los-ninos/)
 
 
 # 01/04/2020
