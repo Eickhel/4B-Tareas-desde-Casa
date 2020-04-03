@@ -3,6 +3,40 @@
 * auto-gen TOC:
 {:toc}
 
+# 03/04/2020
+## General
+Estimadas familias:
+
+Para este periodo de Semana Santa, que es vacacional, les vamos a sugerir un par de actividades. Como lo habitual ha sido siempre marcar alguna tarea de repaso, lectura-resumen de un libro, etc., esta vez, dada la situación que vivimos, hemos pensado que sería más conveniente alguna actividad lúdica para despejar un poco la mente.
+
+Por un lado, proponemos algunas recetas sencillas que seguramente más de uno/a ya tendría en mente para estos días (torrijas…) y que pueden hacer juntos sin muchos incidentes (esperamos).
+
+Además de esto, les adjuntamos algunas maquetas para montar de vehículos (coches y furgones). Son vehículos de películas conocidas y/o que por diferentes motivos tienen una conocida historia de la automoción. La única pega es que necesitan ser imprimidos (o impresos) para poder formarlos.
+
+[IMG-20200402-WA0329](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-04-2020/IMG-20200402-WA0329.jpg)
+
+[IMG-20200402-WA0333](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0333.jpg)
+
+[IMG-20200402-WA0335](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0335.jpg)
+
+[IMG-20200402-WA0336](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0336.jpg)
+
+[IMG-20200402-WA0346](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0346.jpg)
+
+[IMG-20200402-WA0348](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0348.jpg)
+
+[IMG-20200402-WA0351](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0351.jpg)
+
+Pues ya saben, si se animan, tienen hasta el lunes 13 de abril.
+
+¡Saludos!
+
+[https://cookpad.com/es/recetas/2390253-torrijas-al-toque-canario](https://cookpad.com/es/recetas/2390253-torrijas-al-toque-canario)
+[www.youtube.com/watch?v=fx_eUrEuHCI&feature=youtu.be](www.youtube.com/watch?v=fx_eUrEuHCI&feature=youtu.be)
+[www.elrincondeafi.es/postres/torrijas](www.elrincondeafi.es/postres/torrijas)
+[www.gastronomiaycia.republica.com/2020/03/31/galletas-de-mantequilla-una-receta-rica-y-facil-que-pueden-hacer-los-ninos/](www.gastronomiaycia.republica.com/2020/03/31/galletas-de-mantequilla-una-receta-rica-y-facil-que-pueden-hacer-los-ninos/)
+
+
 # 01/04/2020
 ## Lengua
 “Siempre hay que ver el lado bueno de las cosas” Debes contar cuatro cosas buenas que hayan sucedido como consecuencia de esta situació que vivimos (mínimo tres líneas de cada una) Haz algún dibujo relacionado con lo escrito.
