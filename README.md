@@ -13,19 +13,19 @@ Por un lado, proponemos algunas recetas sencillas que seguramente más de uno/a 
 
 Además de esto, les adjuntamos algunas maquetas para montar de vehículos (coches y furgones). Son vehículos de películas conocidas y/o que por diferentes motivos tienen una conocida historia de la automoción. La única pega es que necesitan ser imprimidos (o impresos) para poder formarlos.
 
-[IMG-20200402-WA0329](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-04-2020/IMG-20200402-WA0329.jpg)
+[IMG-20200402-WA0329](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0329.jpg)
 
-[IMG-20200402-WA0333](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0333.jpg)
+[IMG-20200402-WA0333](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0333.jpg)
 
-[IMG-20200402-WA0335](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0335.jpg)
+[IMG-20200402-WA0335](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0335.jpg)
 
-[IMG-20200402-WA0336](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0336.jpg)
+[IMG-20200402-WA0336](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0336.jpg)
 
-[IMG-20200402-WA0346](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0346.jpg)
+[IMG-20200402-WA0346](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0346.jpg)
 
-[IMG-20200402-WA0348](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0348.jpg)
+[IMG-20200402-WA0348](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0348.jpg)
 
-[IMG-20200402-WA0351](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/03-04-2020/IMG-20200402-WA0351.jpg)
+[IMG-20200402-WA0351](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/03-04-2020/IMG-20200402-WA0351.jpg)
 
 Pues ya saben, si se animan, tienen hasta el lunes 13 de abril.
 
