@@ -3,6 +3,47 @@
 * auto-gen TOC:
 {:toc}
 
+# 13/04/2020
+## General
+Buenas tardes
+
+Esperamos que todos estén bien, al igual que sus familias. Comenzamos el tercer trimestre y continuamos con la misma situación de aislamiento. Debemos proseguir con esta nueva forma digital de educar, nueva para ustedes y nueva para nosotros. Trabajaremos con algunos conocimientos que dimos en tercero y ahora los recordamos, como en Matemáticas y, en otras áreas, como Sociales o Naturales, utilizaremos varios PowerPoint con el tema resumido, con vídeos para aclarar y con algunas actividades.
+
+Es importante que vayan haciendo lo que se va marcando cada día y enviando cada semana o dos semanas, mediante fotos, lo que se va trabajando.
+
+Repasaremos lo más importante para que comiencen el próximo curso sin dificultad.
+
+
+## Sociales
+Lo que te propongo para mañana será de **Sociales**. Seguimos con el tema 5 de la Prehistoria. Enviamos  adjunto un [PowerPoint](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/13-04-2020/LA%20PREHISTORIA%201.pdf) del tema, que iremos leyendo, poco a poco, según las indicaciones. Hoy visionaremos las diapositivas, que nos recuerdan lo que hemos leído y completaremos el Mapping que hicimos sobre el Paleolítico con algún dibujo alusivo a lo dado. También tenemos un vídeo, que ya hemos visto, pero que es necesario volver a ver, para
+repasar.
+
+Un fuerte abrazo a todos
+
+#### Vídeos
+* Paleolítico: [https://www.youtube.com/watch?v=Sw-SO3WTxAc](https://www.youtube.com/watch?v=Sw-SO3WTxAc)
+* Neolítico: [https://www.youtube.com/watch?v=LBi2KLq8Fgs](https://www.youtube.com/watch?v=LBi2KLq8Fgs)
+* La edad de los metales: [https://www.youtube.com/watch?v=v6Uz3fq7KK4](https://www.youtube.com/watch?v=v6Uz3fq7KK4)
+
+
+
+## Inglés
+¡Hola de nuevo! Espero que hayas disfrutado de estas vacaciones distintas. Quería darles las gracias a los que participaron con el dibujo a otro compañero, ¡están hechos unos verdaderos artistas!
+Aquí les mando el trabajo para estos días:
+1. Descarga la imagen “[Tenses](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/13-04-2020/Tenses.png)” y estúdiatela.
+2. Haz la siguiente ficha ([Past Tense](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/13-04-2020/Past%20tense.pdf)). No hace falta que la hagas todo el mismo día, organiza tu tiempo como quieras.
+3. Te dejo dos enlaces de juegos que hice:
+    1. [https://wordwall.net/play/1388/226/207](https://wordwall.net/play/1388/226/207)
+    2. [https://wordwall.net/play/1389/019/725](https://wordwall.net/play/1389/019/725)
+4. Los siguientes enlaces son juegos con unas canciones. El primero es más fácil, no hace falta que te registres, pincha en “empezar juego” y después en “quizá en otro momento”. Si no has entendido la palabra que tienes que escribir puedes volverlo a escuchar pinchando en la flecha.
+    1. [https://es.lyricstraining.com/en/play/super-simple-songs/do-you-like-spaghetti-yogurt/HSt7I4VwmS#b7w](https://es.lyricstraining.com/en/play/super-simple-songs/do-you-like-spaghetti-yogurt/HSt7I4VwmS#b7w)
+    2. [https://es.lyricstraining.com/en/play/teddy-rock/easter-bunny-song/HrcQjK5dRr#b7w](https://es.lyricstraining.com/en/play/teddy-rock/easter-bunny-song/HrcQjK5dRr#b7w)
+
+¡Espero que sigan bien!
+
+Un beso con el codo
+
+
 # 03/04/2020
 ## General
 Estimadas familias:
