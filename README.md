@@ -44,6 +44,17 @@ Aquí les mando el trabajo para estos días:
 Un beso con el codo
 
 
+## Francés
+Buenos días, 
+Espero que hayan pasado una buena Semana Santa. 
+Para trabajar francés, durante el martes y el miércoles, les propongo: 
+- Estudiar el vocabulario de la familia. 
+- Ver y escuchar el vídeo [adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/13-04-2020/Ma%20famille.mp4) (repetir junto al vídeo para practicar la pronunciación).
+- Hacer el [crucigrama](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/13-04-2020/La%20famille%2014-04-20.pdf) con el vocabulario trabajado, ejercicio 1 de la página 34 del libro de actividades. Para quienes no disponen del libro, en la fotocopia del vocabulario aparece el ejercicio.
+Aquellas familias que no tienen impresora pueden copiar el crucigrama en un folio o simplemente poner el número y la respuesta. Ejemplo: 2.Frère.
+Gracias, ánimo y un saludo.
+
+
 # 03/04/2020
 ## General
 Estimadas familias:
