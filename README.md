@@ -3,6 +3,15 @@
 * auto-gen TOC:
 {:toc}
 
+# 14/04/2020
+## Matemáticas
+Estimadas familias: adjunto les propongo unos [ejercicios](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/14-04-2020/Actividad%20Mates%20mi%C3%A9rcoles%2015%20abril.pdf) de Matemáticas para hacer en casa.
+
+Espero que sigan bien.
+
+Un abrazo
+
+
 # 13/04/2020
 ## General
 Buenas tardes
