@@ -10,6 +10,7 @@
 2.	Ahora, es el momento de que trabajes con tu libro las páginas 50 y 51. Opciones: libro físico, libro online (Francisco Arteaga les envió un comunicado explicándoles cómo se accedía) y adjunto tienes también una imagen ([Class Book 50 y 51](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/15-04-2020/Class%20Book%2050%20y%2051.jpg)). Léelo, no te apures si te parece que es largo, ponte a ello con calma como hacemos en clase. ¡Ánimo que tú puedes!
 3.	Responde a este cuestionario: [https://forms.gle/cB9yo4FfxWXWJUgt5](https://forms.gle/cB9yo4FfxWXWJUgt5) ¡NO ES UN EXAMEN, puedes repetirlo las veces que quieras, puedes mirar el libro…!
 4.	Haz la siguiente ficha ([Flag Message](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/15-04-2020/Flag%20message.pdf)) si quieres puedes enviármela hecha y así yo puedo intentar averiguar el mensaje que has escrito… ¡pero, EN INGLÉS!:) Si no tienes impresora y te apetece hacerlo, puedes dibujarlo. 
+
 Recuerda que puedes hacer lo que quieras, no es obligatorio y puedo resolverte cualquier duda que tengas.
 
 ¡Un abrazo fuerte!
