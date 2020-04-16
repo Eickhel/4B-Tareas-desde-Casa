@@ -3,6 +3,19 @@
 * auto-gen TOC:
 {:toc}
 
+# 16/04/2020
+## Francés
+Buenos días,
+
+Espero que estén todos bien.
+
+Para trabajar el resto de la semana les propongo leer y hacer la [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-04-2020/Le%20verbe%20%C3%AAtre%2016-04-20%20(4%C2%BA).pdf), en la que se presentan: un esquema con el verbo être (ser o estar) en presente y dos ejercicios.
+1.	Unir cada forma del verbo être con su pronombre correspondiente. 
+2.	Completar las frases utilizando la forma del verbo être que corresponda. 
+
+Gracias, ánimo y un saludo.
+
+
 # 15/04/2020
 ## Inglés
 ¡Hola! ¿Qué tal estás? Aquí te envío la propuesta de trabajo:
