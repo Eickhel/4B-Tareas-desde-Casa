@@ -4,6 +4,17 @@
 {:toc}
 
 # 16/04/2020
+## Science
+¡Hola! La propuesta de trabajo para Science es de… LA FOTOSÍNTESIS.
+1.	Coge el libro que usamos en el primer trimestre (todos deberían de tenerlo en casa, pero si no lo encuentras, está la imagen [adjunta](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/16-04-2020/Photosynthesis%20Book.jpg)). Lee y repasa lo que trabajamos en las páginas 12 y 13 del libro Living Things.
+2.	Ahora, te invito a ver el famoso video que tanto me pedían que pusiera. ¡Anímate a bailarlo y cantarlo! [https://www.youtube.com/watch?v=xuivYRmIACM](https://www.youtube.com/watch?v=xuivYRmIACM)
+3.	Vamos a hacer una pequeña manualidad ([Photosynthesis-Craft](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-04-2020/Photosynthesis-Craft.pdf)). En este enlace te dice los pasos que tienes que seguir y adjunto tienes la hoja que necesitas: [https://www.youtube.com/watch?time_continue=28&v=xnV11uKRuDE&feature=emb_logo](https://www.youtube.com/watch?time_continue=28&v=xnV11uKRuDE&feature=emb_logo)
+
+¡IMPORTANTE! Si no tienes impresora, lo puedes dibujar y escribes las palabras. Si no tienes folios de colores, puedes usar blancos y luego, si te apetece, los pintas.
+
+Un saludito
+
+
 ## Francés
 Buenos días,
 
