@@ -3,6 +3,13 @@
 * auto-gen TOC:
 {:toc}
 
+# 19/04/2020
+## General
+¡Hola a todos! Espero que todos en casa estén bien. Adjunto pueden ver tres documentos. Les pido que lean "[documento a las familias y tabla de horario](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/Documento%20a%20familias%20y%20tabla%20horaria%20a%20partir%2020%20abril.pdf)" ya que vamos a empezar con una nueva organización de cara al tercer trimestre. Además, podrán ver una [reflexión](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/Reflexi%C3%B3n%2020%20abril.pdf) de la mañana, como las que hacíamos en clase y un [PowerPoint](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/PP%20LENGUA%20%20TEMA%209%20.pdf) para trabajar el área de Lengua.
+
+Un saludo a todos
+
+
 # 16/04/2020
 ## Science
 ¡Hola! La propuesta de trabajo para Science es de… LA FOTOSÍNTESIS.
