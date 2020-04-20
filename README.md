@@ -3,6 +3,20 @@
 * auto-gen TOC:
 {:toc}
 
+# 20/04/2020
+## General
+¡Hola a todos! Adjunto tienes dos documentos. Uno recoge los [ejercicios](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/4%C2%BAEPO_FD_recetaamistad_estudiante.pdf) y el otro las [respuestas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/RESPUESTAS%20A%20LAS%20ACTIVIDADES%20DE%20LECTURA%20EFICAZ.docx). No es necesario imprimirlo, puedes copiar las respuestas en un hoja. Un fuerte abrazo a todos
+
+## Inglés
+¡Hola, hola! ¿Cómo están? ¡Vamos a empezar esta semana con más ánimo!
+1.	Comenzaremos haciendo un juego online. Aquí tienes el enlace: [https://assets.cambridgeenglish.org/activities-for-children/m-l-01-storyline-output/story_html5.html?lms=1](https://assets.cambridgeenglish.org/activities-for-children/m-l-01-storyline-output/story_html5.html?lms=1)
+2.	Como muchos sabrán… el 23 de abril es el Día del Libro. Así que te propongo hacer un cómic. Te adjunto cinco posibles diseños que pueden usar. ¡NO HAY QUE HACERLOS TODOS! Solo son ejemplos que puedes utilizar, pero, si te sientes muy inspirado, puedes crear tú uno. Lógicamente tiene que estar escrito, EN INGLÉS. (documentos adjuntos: [1](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/1.pdf), [2](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/2.pdf), [3](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/3.pdf), [4](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/4.pdf) y [5](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/5.pdf))
+3.	En Snappet tienes actividades para ir trabajando cuando creas oportuno. Tienen un chat para preguntarme cualquier duda o simplemente saludarme.
+4.	¡A mover el esqueleto! [https://www.youtube.com/watch?v=388Q44ReOWE](https://www.youtube.com/watch?v=388Q44ReOWE)
+Un fuerte abrazo a todos
+
+
+
 # 19/04/2020
 ## General
 ¡Hola a todos! Espero que todos en casa estén bien. Adjunto pueden ver tres documentos. Les pido que lean "[documento a las familias y tabla de horario](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/Documento%20a%20familias%20y%20tabla%20horaria%20a%20partir%2020%20abril.pdf)" ya que vamos a empezar con una nueva organización de cara al tercer trimestre. Además, podrán ver una [reflexión](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/Reflexi%C3%B3n%2020%20abril.pdf) de la mañana, como las que hacíamos en clase y un [PowerPoint](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/PP%20LENGUA%20%20TEMA%209%20.pdf) para trabajar el área de Lengua.
