@@ -55,8 +55,10 @@ Un saludo
 
 
 # 20/04/2020
-## General
-¡Hola a todos! Adjunto tienes dos documentos. Uno recoge los [ejercicios](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/4%C2%BAEPO_FD_recetaamistad_estudiante.pdf) y el otro las [respuestas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/RESPUESTAS%20A%20LAS%20ACTIVIDADES%20DE%20LECTURA%20EFICAZ.docx). No es necesario imprimirlo, puedes copiar las respuestas en un hoja. Un fuerte abrazo a todos
+## Lengua
+¡Hola a todos! Adjunto tienes dos documentos. Uno recoge los [ejercicios](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/4%C2%BAEPO_FD_recetaamistad_estudiante.pdf) y el otro las [respuestas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-04-2020/RESPUESTAS%20A%20LAS%20ACTIVIDADES%20DE%20LECTURA%20EFICAZ.docx). No es necesario imprimirlo, puedes copiar las respuestas en un hoja. 
+
+Un fuerte abrazo a todos
 
 ## Inglés
 ¡Hola, hola! ¿Cómo están? ¡Vamos a empezar esta semana con más ánimo!
