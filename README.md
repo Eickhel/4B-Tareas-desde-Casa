@@ -3,6 +3,20 @@
 * auto-gen TOC:
 {:toc}
 
+# 23/04/2020
+# General
+¡Hola! Aquí les dejo el material necesario para la propuesta de trabajo de hoy.
+
+[3º y 4º de primaria Sesión HARA 24 de abril](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/3%C2%BA%20y%204%C2%BA%20de%20primaria%20Sesi%C3%B3n%20HARA%2024%20de%20abril.pdf)
+[LA ENERGÍA TEMA 6 pdf editado](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/LA%20ENERG%C3%8DA%20TEMA%206%20pdf%20editado.pdf)
+
+El documento llamado "[dibujo militar](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/dibujo%20militar.pdf)" es una colaboración voluntaria, evidentemente. La idea es que los chicos hagan un dibujo, carta, frases, vídeo...en referencia a los militares que han ayudado en este confinamiento, ya sea en labores de ayuda social, de vigilancia, visitas a centros hospitalarios, residencias...Hay un número de contacto en el propio dibujo, para enviar ahí sus dibujos. Ya hay publicaciones en twitter y facebook. El formato es un ejemplo, pero pueden hacer el dibujo que quieran referido a este tema. Se comprometen luego a enviar un diploma de agradecimiento a todos los que participen.
+
+Un abrazo a todos, espero que sigan bien.
+
+¡Recuerden que el lunes nos vemos!
+
+
 # 22/04/2020
 ## Inglés
 ¡Hola! ¿Qué tal van? Espero que la actividad del cómic les haya gustado. Hoy vamos a empezar con otro tema… ¡LA GRANJA!
