@@ -3,6 +3,50 @@
 * auto-gen TOC:
 {:toc}
 
+# 22/04/2020
+## Inglés
+¡Hola! ¿Qué tal van? Espero que la actividad del cómic les haya gustado. Hoy vamos a empezar con otro tema… ¡LA GRANJA!
+
+1.	Comienza leyendo y estudiándote el PowerPoint adjunto ([in the farm](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-04-2020/In%20the%20farm.pdf)). Las palabras te las sabes ya porque las hemos trabajado en otros cursos, pero está bien repasar. Hay una nueva, te he puesto la traducción.
+2.	Si te apetece haz este juego para practicar un poquito más: [https://es.educaplay.com/recursos-educativos/5525161-in_the_farm.html](https://es.educaplay.com/recursos-educativos/5525161-in_the_farm.html)
+3.	Te dejo una ficha ([ficha_in the farm](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-04-2020/Ficha_in%20the%20farm.pdf)). Ya sabes, si no puedes imprimir, copia las respuestas en una hoja.
+4.	Snappet está a tu disposición para cuando quieras trabajar. A lo largo de esta semana abriré una unidad nueva para los que ya han acabado. Ya sabes que es voluntario, así que no te apures y tómate tu tiempo.
+5.	Te propongo ahora este vídeo para que juegues un ratito. Yo todavía no he conseguido hacerlo rápido, a ver si tú puedes: [https://www.youtube.com/watch?v=Y5kYLOb6i5I](https://www.youtube.com/watch?v=Y5kYLOb6i5I)
+
+Un beso con el codo
+
+
+## Francés
+Buenas tardes,  
+
+Espero que se encuentren todos bien. 
+
+Para trabajar el resto de la semana les propongo hacer la ficha [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-04-2020/Le%20verbe%20%C3%AAtre%2022-04-20%20(4%C2%BA).pdf), que consta de dos ejercicios sobre el verbo être.
+
+1.	Completa con el verbo être o con el pronombre correspondiente.
+
+    Ej:
+
+    ……… sommes à **Nous** sommes
+
+    Nous ………. à Nous **sommes**.
+
+ 2. Elige la opción correcta. Deben elegir, entre las palabras que se proponen, la forma del verbo que être que crean va con cada sujeto.
+
+También les propongo entrar en este enlace para repasar el vocabulario de la familia mediante diferentes juegos: [https://www.educandy.com/site/resource.php?activity-code=e6a2](https://www.educandy.com/site/resource.php?activity-code=e6a2)
+Lamentablemente, hay pocas páginas en francés, por lo que la página web aparece en inglés, pero la actividad, creada por mí, sí está en francés.
+- Word search: Se trata de una sopa de letras. Las palabras pueden aparecer en todas las direcciones, incluso al revés. Para marcar una palabra deben clicar en la primera letra y mantener pulsado para arrastrar hasta donde crean que termina. 
+
+- Hangman: Es el juego del ahorcado. Aparecerá un espacio para cada letra. Según vayan clicando encima de las letras les dirá si es correcta o no, en este último caso el chocolate irá desapareciendo poco a poco. 
+
+- Anagrams: Se presentan las letras desordenadas y el alumno debe ordenarlas para formar una de las palabras del vocabulario. Para ello, deben clicar sobre las letras en orden.
+
+Pueden jugar tantas veces como quieran, para intentar batir su propio récord de tiempo. Espero que les guste. 
+Además, les adjunto una [imagen](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/22-04-2020/Educandy.png) para indicarles donde deben clicar para poder jugar en pantalla completa, modo que me parece más cómodo. 
+
+Gracias, ánimo y un saludo. 
+
+
 # 21/04/2020
 ## Matemáticas
 ¡Hola chicos! Adjunto [PDF](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-04-2020/TEMA%2010%20MATEM%C3%81TICAS%20%20pdf%20editado.pdf) [PowerPoint](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-04-2020/TEMA%2010%20MATEM%C3%81TICAS%20%20editado.pptx) tienen la tarea propuesta para Matemáticas para que lo vayan haciendo entre el miércoles y el jueves. Espero que sigan bien. Recuerden que tienen Snappet para trabajar un poquito más. 
