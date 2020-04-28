@@ -3,6 +3,22 @@
 * auto-gen TOC:
 {:toc}
 
+# 29/04/2020
+## Lengua
+REFLEXIÓN:[https://youtu.be/jJrqsAb_gWk](https://youtu.be/jJrqsAb_gWk)
+HARA: ejercicio de respiración.
+LENGUA:En relación a lo comentado ayer: Hacer una entrevista de 5 preguntas a un familiar.
+
+## Matemáticas
+MATEMATICAS: U.10,
+Snappet ap.5
+(puedes consultar el libro en savia)
+
+## Emocrea
+EMOCREA:Escuchar la meditación: tranquilos y atentos como una rana [https://www.youtube.com/watch?v=p-UMZmA80ME](https://www.youtube.com/watch?v=p-UMZmA80ME)
+TUTORĺA: documento [adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-04-2020/3%C2%BA%20y%204%C2%BA%20el%20subrayado.docx)
+
+
 # 28/04/2020
 ## General
 Buenos días! adjunto [documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-04-2020/REFLEXI%C3%93N%20MARTES%2028.docx) de reflexión
