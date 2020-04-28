@@ -3,8 +3,37 @@
 * auto-gen TOC:
 {:toc}
 
-# 23/04/2020
+# 28/04/2020
 # General
+Buenos días! adjunto [documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-04-2020/REFLEXI%C3%93N%20MARTES%2028.docx) de reflexión
+
+# Francés
+Buenas tardes, 
+
+Espero que se encuentren todos bien y que hayan pasado un buen fin de semana. 
+
+Para trabajar durante el martes y el miércoles les propongo hacer este cuestionario de google, que tiene preguntas de repaso de todo lo que hemos estado trabajando las semanas anteriores: [https://forms.gle/LfXTV6V58yv2MNyYA](https://forms.gle/LfXTV6V58yv2MNyYA)
+
+Por favor, les ruego que lo hagan solo una vez y que escriban el nombre real de los niños, ya que a veces escriben algún apodo y me resulta difícil identificarlos para poder llevar un seguimiento.
+
+El cuestionario estará abierto desde hoy hasta el miércoles inclusive. En el caso de que tengan alguna dificultad para acceder o a la hora de realizarlo, les pido, por favor, que se pongan en contacto conmigo para intentar solucionarlo. 
+
+Gracias, ánimo y un saludo.
+
+## Inglés
+Hello! How are you? Espero que sigas igual de bien que hasta ahora. Aquí te dejo la propuesta de estos días:
+1.	Vamos a utilizar este juego como repaso de lo que trabajamos la semana pasada. Hay partes que hay que escuchar así que prepara los auriculares o los altavoces: [https://quizizz.com/join?gc=314353](https://quizizz.com/join?gc=314353)
+(Te pido que antes de empezar descargues la imagen [QUIZIZZ](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/28-04-2020/Quizizz.jpg) adjunta y que ajustes los controles de la misma forma que he hecho yo)
+2.	Te adjunto una ficha para que puedes hacer ([on the farm 2](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-04-2020/on%20the%20farm%202.pdf)). Te recuerdo, que, si no puedes imprimir no pasa nada, si copias las respuestas en una hoja estará perfecto.
+3.	Mira este vídeo: [https://www.youtube.com/watch?v=TgoYoc8oBFw](https://www.youtube.com/watch?v=TgoYoc8oBFw)
+4.	Imagina que eres un granjero… ¿qué animales te gustaría tener? ¿qué te gustaría plantar? Haz un dibujo y escribe el vocabulario, tanto de los animales como de lo que plantarías. Si quieres dibújate a ti también. Te dejo una plantilla por si quieres usarla, si no, puedes hacerlo en una hoja ([Imagine your farm](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-04-2020/Imagine%20your%20farm.pdf)).
+
+¡Un saludo con el pie!
+
+
+
+# 23/04/2020
+## General
 ¡Hola! Aquí les dejo el material necesario para la propuesta de trabajo de hoy.
 
 [3º y 4º de primaria Sesión HARA 24 de abril](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/3%C2%BA%20y%204%C2%BA%20de%20primaria%20Sesi%C3%B3n%20HARA%2024%20de%20abril.pdf)
