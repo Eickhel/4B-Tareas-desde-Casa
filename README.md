@@ -4,10 +4,10 @@
 {:toc}
 
 # 28/04/2020
-# General
+## General
 Buenos días! adjunto [documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-04-2020/REFLEXI%C3%93N%20MARTES%2028.docx) de reflexión
 
-# Francés
+## Francés
 Buenas tardes, 
 
 Espero que se encuentren todos bien y que hayan pasado un buen fin de semana. 
@@ -22,7 +22,7 @@ Gracias, ánimo y un saludo.
 
 ## Inglés
 Hello! How are you? Espero que sigas igual de bien que hasta ahora. Aquí te dejo la propuesta de estos días:
-1.	Vamos a utilizar este juego como repaso de lo que trabajamos la semana pasada. Hay partes que hay que escuchar así que prepara los auriculares o los altavoces: [https://quizizz.com/join?gc=314353](https://quizizz.com/join?gc=314353)
+1.	Vamos a utilizar este juego como repaso de lo que trabajamos la semana pasada. Hay partes que hay que escuchar así que prepara los auriculares o los altavoces: [https://quizizz.com/join?gc=966375](https://quizizz.com/join?gc=966375)
 (Te pido que antes de empezar descargues la imagen [QUIZIZZ](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/28-04-2020/Quizizz.jpg) adjunta y que ajustes los controles de la misma forma que he hecho yo)
 2.	Te adjunto una ficha para que puedes hacer ([on the farm 2](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-04-2020/on%20the%20farm%202.pdf)). Te recuerdo, que, si no puedes imprimir no pasa nada, si copias las respuestas en una hoja estará perfecto.
 3.	Mira este vídeo: [https://www.youtube.com/watch?v=TgoYoc8oBFw](https://www.youtube.com/watch?v=TgoYoc8oBFw)
