@@ -307,7 +307,7 @@ Pues ya saben, si se animan, tienen hasta el lunes 13 de abril.
 3. Mira este vídeo por si quieres hacer esta manualidad con tus padres, hermanos, abuelos… [https://www.youtube.com/watch?v=hMpD3LOk0OM](https://www.youtube.com/watch?v=hMpD3LOk0OM)
 4. Descarga el archivo que se llama [¡SORPRESA!](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/01-04-2020/%C2%A1SORPRESA!.jpg) que yo ya hice la manualidad.
 
-Se me ha ocurrido hacer una cosa para darnos ánimos los unos a los otros, pero participa solo si te apetece. Haz un dibujo y escribe algo en inglés bonito para otro compañero, NO escribas tu nombre. Cuando lo hayas hecho, pídele a mamá, papá, abuelos… que me envíen la foto a mi correo [sleon@lasallesanildefonso.es](sleon@lasallesanildefonso.es). Cuando lo tenga, te enviaré de otro compañero y así entre todos nos sentiremos más juntos.
+Se me ha ocurrido hacer una cosa para darnos ánimos los unos a los otros, pero participa solo si te apetece. Haz un dibujo y escribe algo en inglés bonito para otro compañero, NO escribas tu nombre. Cuando lo hayas hecho, pídele a mamá, papá, abuelos… que me envíen la foto a mi correo [sleon@lasallesanildefonso.es](mailto:sleon@lasallesanildefonso.es). Cuando lo tenga, te enviaré de otro compañero y así entre todos nos sentiremos más juntos.
 
 ¡Felices vacaciones, seguimos en contacto a la vuelta!
 
