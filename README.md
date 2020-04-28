@@ -30,6 +30,18 @@ Hello! How are you? Espero que sigas igual de bien que hasta ahora. Aquí te dej
 
 ¡Un saludo con el pie!
 
+## Educación Artística
+Llega el Día de la Cruz. Os invito a que dibujéis vuestra propia cruz, y la rellenéis con la técnica del "collage" ( puedes utilizar lentejas, algodón, bolitas de papel...) Si te apetece puedes hacerle una foto y me la envías, no hay concurso pero hay ilusión.
+
+# 27/04/2020
+## 	Lengua
+Buenos días! Seguimos otra semana más.
+Espero que se hayan leído el nuevo comunicado, porque hay cambios en el horario.
+Reflexión: documento adjunto.
+Hara: ejercicio de respiración, como la semana pasada.
+Lengua: U.9, diapositivas 1-5.
+Snappet ap.2 y 3 (puedes consultar el libro de clase en savia digital)
+
 
 
 # 23/04/2020
@@ -47,6 +59,9 @@ Un abrazo a todos, espero que sigan bien.
 
 
 # 22/04/2020
+## Matemáticas
+¡Hola de nuevo! Hoy trabajaremos el tema 10, PowerPoint Diapositivas 1 y 2. Snappet apartados 1 y 2
+
 ## Inglés
 ¡Hola! ¿Qué tal van? Espero que la actividad del cómic les haya gustado. Hoy vamos a empezar con otro tema… ¡LA GRANJA!
 
@@ -89,12 +104,24 @@ Además, les adjunto una [imagen](https://raw.githubusercontent.com/Eickhel/4B-T
 
 Gracias, ánimo y un saludo. 
 
+## Educación Física
+¡Hola! les dejo aquí enlaces a elegir para mover un poco el cuerpo!
+
+* [https://www.youtube.com/watch?time_continue=7&v=ayWUcybFbeI&feature=emb_title](https://www.youtube.com/watch?time_continue=7&v=ayWUcybFbeI&feature=emb_title)
+* [https://www.youtube.com/watch?v=ibPKm-kNkkY&feature=emb_title](https://www.youtube.com/watch?v=ibPKm-kNkkY&feature=emb_title)
+* [https://www.youtube.com/watch?v=RxozAnVBWio&feature=emb_title](https://www.youtube.com/watch?v=RxozAnVBWio&feature=emb_title)
+
+Este más “familiar”: [https://www.youtube.com/watch?time_continue=1&v=x_T-IZU1CQg&feature=emb_title](https://www.youtube.com/watch?time_continue=1&v=x_T-IZU1CQg&feature=emb_title)
+
 
 # 21/04/2020
 ## Matemáticas
 ¡Hola chicos! Adjunto [PDF](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-04-2020/TEMA%2010%20MATEM%C3%81TICAS%20%20pdf%20editado.pdf) [PowerPoint](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-04-2020/TEMA%2010%20MATEM%C3%81TICAS%20%20editado.pptx) tienen la tarea propuesta para Matemáticas para que lo vayan haciendo entre el miércoles y el jueves. Espero que sigan bien. Recuerden que tienen Snappet para trabajar un poquito más. 
 
 Un saludo
+
+## Inglés
+Hello! Vamos a trabajar un poco de Snappet. Tienes distintas unidades, organízate y trabaja poco a poco. ¡Un saludo!
 
 
 # 20/04/2020
@@ -118,6 +145,15 @@ Un fuerte abrazo a todos
 ¡Hola a todos! Espero que todos en casa estén bien. Adjunto pueden ver tres documentos. Les pido que lean "[documento a las familias y tabla de horario](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/Documento%20a%20familias%20y%20tabla%20horaria%20a%20partir%2020%20abril.pdf)" ya que vamos a empezar con una nueva organización de cara al tercer trimestre. Además, podrán ver una [reflexión](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/Reflexi%C3%B3n%2020%20abril.pdf) de la mañana, como las que hacíamos en clase y un [PowerPoint](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-04-2020/PP%20LENGUA%20%20TEMA%209%20.pdf) para trabajar el área de Lengua.
 
 Un saludo a todos
+
+# 17/04/2020
+## Religión
+RELIGIÓN: ¡BUENOS DÍAS! Como ya sabéis, en el mundo cristiano, estamos de fiesta: ¡Jesús, ha resucitado!
+
+Y para los cristianos es un motivo de alegría. Nosotros nos vamos a unir a esa alegría con un dibujo. En un folio, escribiremos una palabra latina que significa alegría: ¡ALELUYA!. En mayúscula y en el centro. Luego lo decoraremos con colores alegres y formas originales. Este dibujo lo harás escuchando una canción muy conocida: “El Aleluya” de Handel. No pongo el enlace porque, a veces, da problema y es fácil de poner desde cualquier plataforma.
+
+(Recomiendo que se oiga con cascos y ponerla en bucle mientras se hace el dibujo).
+Espero que sea un momento, mientras hago esta actividad, de alegría y disfrute personal.
 
 
 # 16/04/2020
