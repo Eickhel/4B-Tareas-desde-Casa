@@ -18,6 +18,7 @@ Snappet ap.5
 
 ## Emocrea
 EMOCREA:Escuchar la meditación: tranquilos y atentos como una rana [https://www.youtube.com/watch?v=p-UMZmA80ME](https://www.youtube.com/watch?v=p-UMZmA80ME)
+
 TUTORĺA: documento [adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-04-2020/3%C2%BA%20y%204%C2%BA%20el%20subrayado.docx)
 
 
