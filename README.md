@@ -21,6 +21,23 @@ EMOCREA:Escuchar la meditación: tranquilos y atentos como una rana [https://www
 
 TUTORĺA: documento [adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-04-2020/3%C2%BA%20y%204%C2%BA%20el%20subrayado.docx)
 
+## Inglés
+¡Hola de nuevo! Te envío la propuesta de trabajo para estos días:
+
+1.	Una ficha con dos ejercicios ([on the farm 3](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-04-2020/On%20the%20farm%203.pdf)). El segundo es un listening que también tienes adjunto ([Audio](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-04-2020/Audio.mp3)). En esa actividad tienes que hacer dos cosas, poner ticks y redondear la respuesta correcta. ¡Si lo haces a la vez puede que te hagas un lío! Te aconsejo que la primera vez que los escuches mires los dibujos y pongas ticks. Antes de la segunda vez, lees las frases, lo escuchas y vas redondeando las respuestas correctas. ¡Puedes oírlo las veces que necesites!, pero 2 o 3 veces es lo que hacemos en clase (adjunto les dejo las respuestas también).
+2.	Te dejo un enlace con un juego con muuuuchas palabras para repasar, ¡espero que te guste! [https://es.educaplay.com/recursos-educativos/5509938-sports.html](https://es.educaplay.com/recursos-educativos/5509938-sports.html)
+3.	Y por último… otro enlace por si te apetece hacer un poco de papiroflexia y regalárselo a alguien en casa, por ejemplo, este domingo que es un día especial 😊: [https://www.youtube.com/watch?v=LFHGsHdY8w4&t=18s](https://www.youtube.com/watch?v=LFHGsHdY8w4&t=18s) (Si no tienes folios de colores, puedes pintarlo)
+
+Un abrazo
+
+## Francés
+Buenas tardes, 
+
+Dado que el viernes es festivo, quiero proponerles una tarea sencilla y, espero, un poco más entretenida. Les adjunto un [documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-04-2020/La%20famille.%2029-04-20%20(4%C2%BA).pdf) con el dibujo de un árbol genealógico vacío, para que los alumnos siguiendo las instrucciones, que se encuentran en la parte baja de la fotocopia, dibujen a los miembros de la familia y escriban sus nombres en los recuadros. Quienes no tengan impresora, o lo prefieran, pueden dibujar su propio árbol y decorarlo a su gusto. 
+
+Un saludo y feliz puente. 
+
+
 
 # 28/04/2020
 ## General
