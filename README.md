@@ -6,7 +6,9 @@
 # 29/04/2020
 ## Lengua
 REFLEXIÓN:[https://youtu.be/jJrqsAb_gWk](https://youtu.be/jJrqsAb_gWk)
+
 HARA: ejercicio de respiración.
+
 LENGUA:En relación a lo comentado ayer: Hacer una entrevista de 5 preguntas a un familiar.
 
 ## Matemáticas
