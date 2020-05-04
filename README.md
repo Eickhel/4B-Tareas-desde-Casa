@@ -3,6 +3,19 @@
 * auto-gen TOC:
 {:toc}
 
+# 04/05/2020
+## Lectura Eficaz
+Buenos días! Qué tal el fin de semana? El poder salir a la calle, hacer deporte, pasear....? Espero que todo haya ayudado a relajar más eñ ambiente. Os adjunto el documento de Lectura Eficaz ([fichas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/04-05-2020/4%C2%BAEPO_FD_cup%C3%B3nonce_estudiante.pdf) y solucionario) y el [audio](https://drive.google.com/file/d/1OrY5no6gI3xy_COn33JYQRVVObBRaeZg/view?usp=sharing) para el problema de matemáticas. Nos vemos a las 12 o a las 17.
+
+## Inglés
+¡Hola de nuevo! Espero que hayan disfrutado del puente y de las horitas de salida que ya podemos ir teniendo. La propuesta de trabajo de estos días es la siguiente:
+1.	Ver el siguiente enlace: [https://elt.oup.com/student/incredibleenglish/level4/stories_04/story_07?cc=global&selLanguage=en](https://elt.oup.com/student/incredibleenglish/level4/stories_04/story_07?cc=global&selLanguage=en)
+2.	Si quieres, puedes volver a leer el cómic. Lo tienes adjunto o en las páginas 56 y 57 del libro de clase ([Cómic](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/04-05-2020/C%C3%B3mic.jpg))
+3.	Aquí tienes un juego con preguntas de la historia y del vocabulario. Si quieres, repasa un poquito antes de jugar: [https://kahoot.it/challenge/01420157?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1588607147476](https://kahoot.it/challenge/01420157?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1588607147476) (pueden jugar muchas veces, ya no hay límite)
+4.	También te propongo una ficha que tienes adjunta ([on the farm](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/04-05-2020/On%20the%20farm.pdf))
+Un abrazo fuerte, fuerte. ¡Ya nos queda menos!
+
+
 # 29/04/2020
 ## Lengua
 REFLEXIÓN:[https://youtu.be/jJrqsAb_gWk](https://youtu.be/jJrqsAb_gWk)
