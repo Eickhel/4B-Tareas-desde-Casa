@@ -3,6 +3,20 @@
 * auto-gen TOC:
 {:toc}
 
+# 05/05/2020
+## Francés
+Buenos días, 
+
+Espero que sigan todos bien y que hayan pasado un buen fin de semana largo. 
+
+Para trabajar durante hoy y mañana, les propongo esta [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/05-05-2020/La%20description%20physique.%2005-05-20%20(4%C2%BA).pdf) de repaso de la descripción física y hacer los tres ejercicios que se presentan en ella: 
+1. Los alumnos deben unir los dibujos con los adjetivos correspondientes. A cada dibujo le corresponde más de un adjetivo.
+2. Rodea la opción correcta. Para ello, tienen que fijarse muy bien en el género (masculino / femenino) y el número (singular / plural).
+3. Completa con el verbo être. La descripción es uno de los muchos contextos en los que se debe utilizar este verbo tan importante. 
+
+Un saludo.
+
+
 # 04/05/2020
 ## Lectura Eficaz
 Buenos días! Qué tal el fin de semana? El poder salir a la calle, hacer deporte, pasear....? Espero que todo haya ayudado a relajar más eñ ambiente. Os adjunto el documento de Lectura Eficaz ([fichas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/04-05-2020/4%C2%BAEPO_FD_cup%C3%B3nonce_estudiante.pdf) y solucionario) y el [audio](https://drive.google.com/file/d/1OrY5no6gI3xy_COn33JYQRVVObBRaeZg/view?usp=sharing) para el problema de matemáticas. Nos vemos a las 12 o a las 17.
