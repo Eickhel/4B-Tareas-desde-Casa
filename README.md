@@ -18,7 +18,7 @@ Un saludo.
 
 
 # 04/05/2020
-## Lectura Eficaz
+## Lectura Eficaz / Matemáticas
 Buenos días! Qué tal el fin de semana? El poder salir a la calle, hacer deporte, pasear....? Espero que todo haya ayudado a relajar más eñ ambiente. Os adjunto el documento de Lectura Eficaz ([fichas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/04-05-2020/4%C2%BAEPO_FD_cup%C3%B3nonce_estudiante.pdf) y solucionario) y el [audio](https://drive.google.com/file/d/1OrY5no6gI3xy_COn33JYQRVVObBRaeZg/view?usp=sharing) para el problema de matemáticas. Nos vemos a las 12 o a las 17.
 
 ## Inglés
