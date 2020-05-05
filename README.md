@@ -3,7 +3,55 @@
 * auto-gen TOC:
 {:toc}
 
+# 06/05/2020
+## Lengua
+Buenos días!!!
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA:Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+LENGUA: Snappet, U.9 apartados 7 y 8
+
+## Matemáticas
+MATEMÁTICAS:Snappet: U.10, apartado 7
+
+## Emocrea
+¡Hola chicos! Hoy en EMOCREA vamos a ver un vídeo que nos enseña algo muy importante.
+
+¿Qué será lo que nos quiere decir?
+
+Enlace: [https://youtu.be/rwelE8yyY0U](https://youtu.be/rwelE8yyY0U)
+
+Una sencilla historia con una sencilla ilustración nos muestra como nuestros pequeños gestos de cada día pueden crear grandes reacciones y llenar de color y felicidad nuestros días. Podemos destacar:Empatía y bondad.Generosidad.¡Descubrir que pequeñas acciones mejoran nuestra vida y la de las personas que nos rodean haciéndonos sentir bien a todos!
+
 # 05/05/2020
+## Lengua
+Buenos días! Volvemos al "ataque"!!!!
+
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+LENGUA: Lectura Eficaz (documento adjunto) 
+- Ver tarea Lectura Eficaz 04/05/2020
+
+## Matemáticas
+MATEMÁTICAS:Problema y audio (enviar adjunto). 
+- Ver audio 04/05/2020
+
+Enunciado del problema y operaciones en “planificación”Mi amigo Paco es ciclista, nació en Córdoba y es muy simpático. Voy a compartir un audio que me envió por Whatsapp. Escúchalo con atención y contesta: ¿Cuántos kilómetros hace Paco a la semana?
+
+1. 24,67 + 1.268 + 109,46 + 456,98 =
+2. 65.789,907 - 33.709,123 =
+3. 98.706 x 5,78=
+4. 10.789 : 9 =
+5. 11.520 : 45 =
+
+## Educación Artística
+Ed. Artística: Dibuja tu animal favorito. Utiliza los colores que quieras, rotuladores, creyones, acuarelas, témperas, ceras (normales o blandas…)
+
+Podéis escuchar la banda sonora del Rey León, os puede ayudar en la realización de la actividad.
+
 ## Francés
 Buenos días, 
 
