@@ -3,6 +3,56 @@
 * auto-gen TOC:
 {:toc}
 
+# 07/05/2020
+## Lengua
+Buenos días!
+
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+LENGUA: Libro de Lengua. Unidad 9. Pág.183. Copiar texto desde "Al principio todo fue bien" hasta "...de la pértiga en mitad de las aguas"
+
+Recuerda hacer buena letra, sin faltas, manteniendo los márgenes y espacios entre líneas (3 cuadritos entre líneas).
+
+Pág.186, act. 14.
+
+## Matemáticas
+MATEMÁTICAS: U.10, apartado 8
+
+## Religión
+RELIGIÓN: Relato del rey David: [https://youtu.be/HFi56T2wU6g](https://youtu.be/HFi56T2wU6g)
+Después de ver y oír el video que nos cuenta la historia del rey David cuando era niño.
+
+Escribe en un folio tres adjetivos que definen a David, según tu criterio.
+
+Haz luego un dibujo de alguien de tu familia que tenga esas características, o puedes crear una nueva persona.
+
+## Francés
+¡Buenas tardes!
+
+Estoy teniendo problemas con Sallenet, por lo que hasta que se solucionen les haré llegar la tarea de francés a través de los tutores.
+
+Para trabajar durante el resto de la semana, les propongo una ficha de repaso de las preposiciones de lugar.
+
+Con el objetivo de poder llevar un seguimiento real, sería conveniente que, en un primer momento, intentaran completar la ficha sin ayuda y apuntaran cuántas han tenido bien, para comunicármelo. Después, pueden terminar de rellenar los espacios que les falten revisando el libro o un diccionario.
+
+Por último, les ruego que me envíen los mensajes con las tareas y las dudas a mi correo, puesto que mediante Sallenet no me dejará responderles.
+
+Gracias y disculpen las molestias.
+
+## Inglés
+¡Hola, chicos! Espero que estén bien. Te recuerdo que puedes hacer el kahoot ~~de la semana pasada~~ del martes, aún quedan niños que no lo han hecho ¡anímate! Hoy vamos a empezar a repasar otras palabras de vocabulario. En este caso…chanchanchán: ¡los animales! Para ello, sigue las indicaciones:
+1.	Juega a estos juegos para recordar las palabras (es importante que los hagas para que repases) [https://wordwall.net/play/1598/857/788](https://wordwall.net/play/1598/857/788) y [https://wordwall.net/play/1598/857/893](https://wordwall.net/play/1598/857/893)
+2.	Descarga el audio ([Audio animals](https://drive.google.com/file/d/1L71EKXE-BJAe40zETo_9JIDjEaLIsVNm/view?usp=sharing)) y repite las palabras como hacemos en clase. Te recomiendo que lo hagas dos veces.
+3.	Te propongo la siguiente ficha ([animals](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/07-05-2020/Animals.pdf)). Recuerda que si no tienes impresora puedes copiar en una hoja las respuestas.
+
+¡Un abrazo!
+
+¡Ya nos queda menoooos! 😊
+
+
+
 # 06/05/2020
 ## Lengua
 Buenos días!!!
