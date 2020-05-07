@@ -16,7 +16,9 @@ HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consc
 Sociales: Diapositivas 10, 11, 12 y 13 (incluido vídeo) y Mapping
 
 ## Science
-Hello! Hoy nos toca…¡SCIENCE! Vamos a seguir repasando la unidad de las plantas.
+Hello! 
+
+Hoy nos toca…¡SCIENCE! Vamos a seguir repasando la unidad de las plantas.
 1.	Para empezar, pincha en este enlace. Tienes varias diapositivas: la primera con un juego y las demás con pequeñas explicaciones que ya hemos trabajado en tercero y en cuarto: [https://view.genial.ly/5ea89154ac73420d83b7d450/interactive-image-parts-of-a-plant-science-4th](https://view.genial.ly/5ea89154ac73420d83b7d450/interactive-image-parts-of-a-plant-science-4th)
 2.	Te propongo una [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/08-05-2020/Parts%20of%20a%20plant%20sheet.pdf). Tienes que recortar y pegar la comida que aparece en la segunda hoja. Cuando los hayas pegado, escribe el nombre en la línea. Fíjate en los ejemplos que te he puesto. Si quieres que te quede más bonito, coloréalo. Si no tienes impresora, puedes copiar el cuadro o hacer una lista dibujando la comida.
 3.	Mira a ver en tu cocina qué comida tienes y qué parte de la planta es. Si quieres cuéntamelo por el chat de Snappet (en inglés).
