@@ -33,7 +33,7 @@ Haz luego un dibujo de alguien de tu familia que tenga esas características, o 
 
 Estoy teniendo problemas con Sallenet, por lo que hasta que se solucionen les haré llegar la tarea de francés a través de los tutores.
 
-Para trabajar durante el resto de la semana, les propongo una ficha de repaso de las preposiciones de lugar.
+Para trabajar durante el resto de la semana, les propongo una [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/07-05-2020/Les%20pr%C3%A9positions%20de%20lieu.%2007-05-20%20(4%C2%BA).pdf) de repaso de las preposiciones de lugar.
 
 Con el objetivo de poder llevar un seguimiento real, sería conveniente que, en un primer momento, intentaran completar la ficha sin ayuda y apuntaran cuántas han tenido bien, para comunicármelo. Después, pueden terminar de rellenar los espacios que les falten revisando el libro o un diccionario.
 
