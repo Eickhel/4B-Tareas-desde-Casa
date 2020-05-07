@@ -3,6 +3,27 @@
 * auto-gen TOC:
 {:toc}
 
+# 08/05/2020
+## Lengua
+Buenos días!
+
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+[Ficha HARA](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/08-05-2020/4%C2%BA%20primaria%20Sesi%C3%B3n%202%20viernes%208%20de%20mayo%20(1).pdf)
+
+Sociales: Diapositivas 10, 11, 12 y 13 (incluido vídeo) y Mapping
+
+## Science
+Hello! Hoy nos toca…¡SCIENCE! Vamos a seguir repasando la unidad de las plantas.
+1.	Para empezar, pincha en este enlace. Tienes varias diapositivas: la primera con un juego y las demás con pequeñas explicaciones que ya hemos trabajado en tercero y en cuarto: [https://view.genial.ly/5ea89154ac73420d83b7d450/interactive-image-parts-of-a-plant-science-4th](https://view.genial.ly/5ea89154ac73420d83b7d450/interactive-image-parts-of-a-plant-science-4th)
+2.	Te propongo una [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/08-05-2020/Parts%20of%20a%20plant%20sheet.pdf). Tienes que recortar y pegar la comida que aparece en la segunda hoja. Cuando los hayas pegado, escribe el nombre en la línea. Fíjate en los ejemplos que te he puesto. Si quieres que te quede más bonito, coloréalo. Si no tienes impresora, puedes copiar el cuadro o hacer una lista dibujando la comida.
+3.	Mira a ver en tu cocina qué comida tienes y qué parte de la planta es. Si quieres cuéntamelo por el chat de Snappet (en inglés).
+
+Un abracito
+
+
 # 07/05/2020
 ## Lengua
 Buenos días!
