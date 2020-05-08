@@ -13,7 +13,8 @@ HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consc
 
 [Ficha HARA](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/08-05-2020/4%C2%BA%20primaria%20Sesi%C3%B3n%202%20viernes%208%20de%20mayo%20(1).pdf)
 
-Sociales: Edad de los Metales. [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/08-05-2020/LA%20PREHISTORIA%201.pptx) 8,9 y 10 (incluido vídeo) y Mapping
+## Sociales
+Edad de los Metales. [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/08-05-2020/LA%20PREHISTORIA%201.pptx) 8,9 y 10 (incluido vídeo) y Mapping
 
 ## Science
 Hello! 
