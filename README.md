@@ -3,6 +3,30 @@
 * auto-gen TOC:
 {:toc}
 
+# 12/05/2020
+## Francés
+Buenas tardes,
+
+Espero que todos sigan bien. 
+Dado que este año la semana de La Salle la celebraremos de una forma diferente y no podremos merendar todos juntos, les propongo una receta de una comida francesa que seguro que ya conocen. 
+Adjunta les envío una [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/12-05-2020/Receta%20cr%C3%AApes.%20Fiestas%20La%20Salle.pdf) que, además de la receta, consta de dos ejercicios: 
+1. Deben rodear o marcar cuáles de los ingredientes, que se presentan en los dibujos, no aparecen en la foto. 
+2. Tenemos la receta en español, pero si se fijan, debajo del recuadro de los ingredientes, hay un recuadro azul con los pasos de la receta en francés. Estos se encuentran desordenados y deben ordenarlos para poder tener la receta correcta en los dos idiomas. 
+
+Les animo a cocinar esta receta y pasar una tarde diferente al estilo francés, bon appétit!
+Por último, como sé que hay muchos alumnos con alergias alimentarias, les propongo usar como alternativa a la leche, alguna bebida vegetal, por ejemplo, de avena, y como alternativa a la harina de trigo, harina de avena o de espelta.
+
+¡Feliz semana de La Salle!
+
+## Inglés
+Hello! Espero que sigan bien. Estos días vamos a seguir trabajando los animales:
+1.	Les he hecho un juego y les he puesto animales que trabajamos en tercero, a ver qué tal va la memoria. Si fallas no te preocupes, durante el juego te dará más oportunidades: [https://quizizz.com/join?gc=471268](https://quizizz.com/join?gc=471268)
+2.	También te dejo una ficha para repasar un poquito más ([Animals](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/12-05-2020/Animals.pdf))
+3.	Y, por último, te dejo un enlace para dibujar un… ¡CANGURO! En clase, siempre es el animal que más difícil me resulta hacer, a ver qué tal te sale. Cuando lo hayas acabado, escribe las partes del cuerpo que recuerdes con una flechita. Por ejemplo, en los ojos haces una flecha y escribes: [https://www.youtube.com/watch?v=FZLFACI54aY&t=303s](https://www.youtube.com/watch?v=FZLFACI54aY&t=303s)
+¡Un saludo para todos y a disfrutar de los ratitos que podemos salir, pero con cuidado y responsabilidad! 😊
+
+
+
 # 11/05/2020
 ## Lengua
 ¡Buenos días!
