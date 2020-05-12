@@ -4,6 +4,19 @@
 {:toc}
 
 # 12/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 10, [diapositiva](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/TEMA%2010%20DE%20LENGUA.pdf)  3, Snappet ap.3
+
+## Matemáticas
+Matemáticas: Unidad 11, [diapositiva](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/FIGURAS%20PLANAS%20Y%20CUERPOS%20GEOM%C3%89TRICOS.pdf) 5, Snappet ap.2
+
+## Educación Artística
+Ed. Artística: Terminar el dibujo del animal favorito (los que acabaron, no tiene que hacerlo)
+
 ## Francés
 Buenas tardes,
 
