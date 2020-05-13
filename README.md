@@ -3,6 +3,24 @@
 * auto-gen TOC:
 {:toc}
 
+# 13/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 10, [diapositiva](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/TEMA%2010%20DE%20LENGUA.pdf) 4, Snappet ap.4 y 5
+
+## Matemáticas
+Matemáticas: Unidad 11, [diapositiva](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/FIGURAS%20PLANAS%20Y%20CUERPOS%20GEOM%C3%89TRICOS.pdf) 6 y 7. Snappet ap.3
+
+## Educación Artística
+Nuevo cómic de San Juan Bautita de la Salle. Realizado por Javier Nóbregas profesor de secundaria de nuestro colegio. Está en [comunicados](https://drive.google.com/file/d/13rXrmnmkZtpoy-ur_Z5B0zFwJT8XSFsV/view?usp=sharing)
+
+## Educación Emocional
+Emocrea: En la sesión de hoy de EMOCREA, veremos un vídeo donde se nos muestra que todos somos especiales y siempre hay alguien que puede ver cómo somos, no solo por fuera, sino también por dentro. [https://vimeo.com/54241317](https://vimeo.com/54241317) Este corto cuando lo vi me hizo recordar el cuento «Orejas de mariposa« de Luisa Aguilar. Como te puedes imaginar, este corto de Wouter Bongaerts cuenta la historia de un ratón que tiene unas grandes orejas y es el animal que más cuesta vender en la tienda de animales. Pero llega un niño con unas cualidades especiales que encuentra en él toda la belleza del mundo.Aquí destaco:La diferencia y el daño que puede causar a aquellos que la tienen y que a pesar de ello no la viven como tal o sí.La importancia de darle valor a esa diferencia y encontrarle un lado positivo y particular.La importancia de la integración social y de empatizar.
+
+
 # 12/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39)
