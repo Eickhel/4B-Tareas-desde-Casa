@@ -3,6 +3,46 @@
 * auto-gen TOC:
 {:toc}
 
+# 14/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=3546](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=3546)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 10, [diapositiva](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/TEMA%2010%20DE%20LENGUA.pdf)  5 y 6. Snappet ap. 6 y 7
+
+## Matemáticas
+Matemáticas: Unidad 11, [diapositiva](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/FIGURAS%20PLANAS%20Y%20CUERPOS%20GEOM%C3%89TRICOS.pdf) 8 a 10. Snappet ap.4
+
+## Religión
+Esta semana , por ser la semana de la Salle, cambiamos las áreas (religión por naturales).Mañana haríamos actividades especiales de la Salle que pertenecen a religión.
+
+## Naturales
+El calor. Diapositivas 11 a 14. 2ª Sesión “EL CALOR” Diapositivas 11, 12, 13 y 14 del p.p
+
+Actividades:
+- Con un termómetro y, la ayuda de una persona mayor toma la temperatura de los miembros de tu familia y las apuntas.
+- Toma un vaso de agua y mide su temperatura, luego lo metes en la nevera. A los diez minutos vuelve a tomar la temperatura. ¿Qué ha pasado? ¿Cuál es la diferencia de temperaturas? Anota los resultados y coméntalos.
+- Toma un cubito de hielo, colócalo en un plato y observa qué sucede. Anota cada diez minutos en qué estado está el cubito y cuánto tarda en derretirse. ¿Cómo se llama ese cambio de estado?
+
+## Francés
+¡Buenos días!
+
+Para continuar repasando la descripción, les propongo que se imaginen cómo era San Juan Bautista de La Salle y que lo describan, con el vocabulario que ya conocemos. Además, pueden acompañarlo de un dibujo.
+
+También, les pido disculpas, porque en la tarea de la receta había un fallo en los números en español. El orden de las imágenes es correcto, pero los números que las acompañan no, se cambiaron al pasar el documento a PDF. Les ruego que lo corrijan para poder hacer el ejercicio.
+
+¡Muchas gracias!
+
+## Inglés
+¡Hola de nuevo! ¿Qué tal estás? Espero que muy bien y que estés disfrutando de las salidas. Te dejo lo propuesto para estos días. Vamos a repasar vocabulario de las partes de cuerpo y seguir con los animales:
+1.	Te dejo un enlace con un pequeño repaso y un juego. Espero que te guste: [https://view.genial.ly/5ebbcd759d821b0d1e771fea/game-parts-of-the-body](https://view.genial.ly/5ebbcd759d821b0d1e771fea/game-parts-of-the-body)
+2.	Aquí tienes una ficha ([body and animals](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/14-05-2020/Body%20and%20animals.pdf))
+3.	Por último, te animo a acabar el vídeo del otro día del canguro y que le escribas las partes. Algunos compañeros me lo han mandado y les ha quedado genial. Les dejo hoy otro enlace de otro animal por si quieres hacerlo con este. Si ya lo hiciste con el canguro, te propongo ahora hipopótamo muy mono: [https://www.youtube.com/watch?v=sckC-zohWNI](https://www.youtube.com/watch?v=sckC-zohWNI)
+
+¡Un abrazo muuuy grande!
+
+
 # 13/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=39)
