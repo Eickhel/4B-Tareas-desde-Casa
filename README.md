@@ -18,7 +18,7 @@ Matemáticas: Unidad 11, [diapositiva](https://github.com/Eickhel/4B-Tareas-desd
 Esta semana , por ser la semana de la Salle, cambiamos las áreas (religión por naturales).Mañana haríamos actividades especiales de la Salle que pertenecen a religión.
 
 ## Naturales
-El calor. Diapositivas 11 a 14. 2ª Sesión “EL CALOR” Diapositivas 11, 12, 13 y 14 del p.p
+El calor. [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/LA%20ENERG%C3%8DA%20TEMA%206%20pdf%20editado.pdf) 11 a 14. 2ª Sesión “EL CALOR” [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/LA%20ENERG%C3%8DA%20TEMA%206%20editado.pptx) 11, 12, 13 y 14 del p.p
 
 Actividades:
 - Con un termómetro y, la ayuda de una persona mayor toma la temperatura de los miembros de tu familia y las apuntas.
