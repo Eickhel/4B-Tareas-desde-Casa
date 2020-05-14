@@ -3,6 +3,20 @@
 * auto-gen TOC:
 {:toc}
 
+# 15/05/2020
+## Lengua
+Feliz día de la Salle
+
+REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=3546](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=3546)
+
+Video enviado por cmunicados (es de movimiento)
+
+## Science
+¡Hola! Les recuerdo que tal y como comentaron los tutores, el trabjo de Science se envía cada dos semanas. Si ya han acabado, pueden resapar el vocabulario y escribirme por el chat de Snappet comentándome qué alimentos tienen en casa y qué parte de la planta son. ¡Un abrazo!
+
+## Religión
+Misa por Juan Bautista de la Salle. Enlace mandado por la direccion
+
 # 14/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/reflexion.php?idReflexion=3546](http://reflexiondeldia.eu/es/reflexion.php?idReflexion=3546)
