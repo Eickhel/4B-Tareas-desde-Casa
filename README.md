@@ -3,6 +3,22 @@
 * auto-gen TOC:
 {:toc}
 
+# 18/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: U.10, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-05-2020/TEMA%2010%20DE%20LENGUA.pdf) 7 y 8. Snappet 8 y 9
+
+## Matemáticas
+Matemáticas: U.11, Snappet ap.6
+
+## Educación artística
+Buenos días!!!! Hoy tendremos una sesión de yoga. Ánimo!!!!
+
+Ed. Física: [https://youtu.be/t8748OWc1nQ](https://youtu.be/t8748OWc1nQ)
+
 # 15/05/2020
 ## Lengua
 Feliz día de la Salle
