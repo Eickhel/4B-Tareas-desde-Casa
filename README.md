@@ -3,6 +3,40 @@
 * auto-gen TOC:
 {:toc}
 
+# 19/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo..
+
+Lectura Eficaz: Documento en [comunicaciones](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-05-2020/4%C2%BAEPO_LI_sue%C3%B1odeLeo_estudiante.pdf).
+
+## Matemáticas
+Matemáticas: U.11. Snappet apartado de cálculo
+
+# Educación Artística
+Ed. Artística: La sinfonía de los Juguetes de Joseph Haydn: [https://www.youtube.com/watch?v=VEwFJ0MqHF0](https://www.youtube.com/watch?v=VEwFJ0MqHF0) Dibujo de lo que te sugiera mientras escuchas la sinfonía, con los materiales que quieras. Sé creativo.
+
+## Francés
+Buenas tardes, 
+
+Espero que se encuentren todos bien y que hayan pasado un buen fin de semana. 
+Para trabajar durante el martes y el miércoles, les propongo una actividad ([documento adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-05-2020/Les%20pr%C3%A9positions%20de%20lieu%2018-05-20%20(4%C2%BA).pdf)) en la que deben indicar dónde se encuentran los niños. Para ello, deben utilizar el verbo être y las preposiciones de lugar, tal y como se muestra en el ejemplo. 
+
+Como el vocabulario de la casa no lo hemos trabajado, puse carteles con las letras en rojo indicando los objetos más importantes.
+
+Gracias, ánimo y un saludo.
+
+## Inglés
+¡Hola! ¿Qué tal estás? Espero que bien, empieza una nueva semana y hay que tener actitud más que positiva. Hoy te propongo una actividad distinta:
+1.	Descarga la imagen “[Sloths reading](https://raw.githubusercontent.com/Eickhel/4B-Tareas-desde-Casa/master/19-05-2020/SLOTHS%20reading.png)”. Léela con calma y despacio y fíjate bien en los dibujos.
+2.	Haz el siguiente juego: [https://edpuzzle.com/media/5ec2be53d5a3693f6ebb06d4](https://edpuzzle.com/media/5ec2be53d5a3693f6ebb06d4) Pincha en play y agranda la pantalla. 
+3.	Con toda la información que tienes, te propongo hacer el siguiente mapping ([Sloths](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/19-05-2020/Sloths%20.pdf)). Ayúdate de la imagen o del vídeo. Para el dibujo que tienes que hacer te dejo un vídeo por si quieres usarlo, puedes copiarlo o hacer tu propio [https://www.youtube.com/watch?v=LZ1YMYyVraU](https://www.youtube.com/watch?v=LZ1YMYyVraU)
+
+Un saludito para todos 😊
+
+
+
 # 18/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
