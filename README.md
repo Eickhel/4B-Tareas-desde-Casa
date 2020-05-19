@@ -3,6 +3,28 @@
 * auto-gen TOC:
 {:toc}
 
+# 20/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo..
+
+Lengua: Para saber cómo se hace una obra de teatro [https://youtu.be/MCH7StNflXM](https://youtu.be/MCH7StNflXM) (mañana lo trabajaremos en Snappet)
+
+## Matemáticas
+Matemáticas: Problemas. [Documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/20-05-2020/problemas%20Mates%202%20pdf.pdf) en comunicados
+
+## Educación Emocional
+Emocrea: EL ALFARERO
+[https://youtu.be/0oRXl7qQuy4](https://youtu.be/0oRXl7qQuy4)
+En este vídeo se nos cuenta la historia de un niño que noconseguía hacer un jarrón en el torno.
+
+Lo intentaba perono le salía, hasta que en un momento lo consiguió ydescubrió el verdadero secreto.Esta historia nos enseña:
+
+* El valor del esfuerzo y la constancia.
+* El interés por hacer las cosas bien hechas, aunque alprincipio no salgan todo lo bien que uno quisiera.
+* La conexión interior con la pasión de cada uno que seconsigue con tesón.
+
 # 19/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
