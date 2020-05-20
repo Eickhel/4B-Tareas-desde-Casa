@@ -3,6 +3,53 @@
 * auto-gen TOC:
 {:toc}
 
+# 21/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo..
+
+Lengua: U.10, Snappet, ap. 10 y 11
+
+## Matemáticas
+Mates: Snappet: Apartado de repaso (excepto las dos actividades del compás) y examen
+
+## Religión
+Religión: [https://www.youtube.com/watch?v=HSdnwvF0hXg&authuser=1](https://www.youtube.com/watch?v=HSdnwvF0hXg&authuser=1)
+Después de ver la historia de José, responde a estas preguntas:
+
+¿Quién era José?
+
+¿Por qué crees que era tratado así por sus hermanos?
+
+¿Piensas, que José se merecía lo que le pasó?
+
+Haz una reflexión sobre el mensaje de la historia de José
+
+## Francés
+Buenas tardes, 
+
+Espero que se encuentren todos bien. 
+
+Para trabajar durante el resto de la semana, les propongo escuchar el audio [adjunto](https://drive.google.com/file/d/1Tw6pIfa124RC56-XTU4D2P4LiXsskho9/view?usp=sharing) y completar la [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-05-2020/Les%20pr%C3%A9positions%20de%20lieu%2020-05-2020.pdf). En el audio se presenta la posición en la que deben dibujar el libro respecto a la mesa.
+
+Además, es importante que repasen el verbo **être**, ya que la próxima semana empezaremos a trabajar otro verbo nuevo, pero primero es necesario que afiancen este. 
+
+Muchas gracias. Un saludo
+
+
+## Inglés
+¡Hola caracola! Espero que sigan bien y que hayan aprendido información que no sabían sobre los perezosos. Me parecen animales muy interesantes y graciosos. La propuesta de trabajo de estos días es la siguiente:
+1.	Te propongo este juego de repaso de las partes del cuerpo y de los animales. Fíjate bien si te pide palabras que empiecen o que contengan la letra: [https://es.educaplay.com/recursos-educativos/5849358-animals_and_body_parts.html](https://es.educaplay.com/recursos-educativos/5849358-animals_and_body_parts.html)
+2.	Descarga la ficha ([animal](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-05-2020/animal.pdf)). Tienes que elegir un animal y buscar información sobre él. Te dejo mi ejemplo para que veas bien cómo hacerlo ([example](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/21-05-2020/example.pdf)). No vale elegir el mismo yo y puede ser cualquiera que ustedes quieran 😊
+Como ya saben,  las tareas son propuestas de trabajo y su envío es opcional, pero me gustaría que me enviaran esta de los animales para ver qué tal les ha quedado. Mi correo es [sleon@lasallesanildefonso.es](mailto:sleon@lasallesanildefonso.es) por si quieren mandármelo.
+
+¡Hasta el viernes que nos toca Science!
+
+Un abracito
+
+
+
 # 20/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
