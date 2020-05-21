@@ -3,6 +3,26 @@
 * auto-gen TOC:
 {:toc}
 
+# 22/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo..
+
+## Science
+¡Hola! Espero que sigan bien. Hoy nos toca Science y te propongo un experimento. Durará siete días desde que tú quieras empezarlo. Para ello:
+1.	Descarga el siguiente PDF ([experiment](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/Experiment.pdf)). Sigue los pasos marcados y prepara el material que se necesita. Son sencillos y te he puesto imágenes de mi experimento para que tengas ayuda.
+2.	Haz la fotocopia que está adjunta ([experiment plant photocopy](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/Experiment%20plant%20photocopy.pdf)). Fíjate bien en las tres partes y vete rellenando lo que se te pide el día que tienes que hacerlo. Recuerda que si no tienes impresora, puedes ir copiando la fotocopia en una hoja.
+Cualquier duda que tengas puedes enviarme un correo o un mensaje por el chat de Snappet.
+
+¡Ánimo y espero que lo pasen bien!
+
+## Sociales
+Sociales: 7 primeras diapositivas. Escribir 10 características de los egipcios.
+
+## HARA
+HARA: documento adjunto en [comunicados](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/4%C2%BA%20de%20primaria%20Sesi%C3%B3n%203%20viernes%2022%20de%20mayo.pdf)
+
 # 21/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
