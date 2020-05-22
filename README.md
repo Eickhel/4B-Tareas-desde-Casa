@@ -18,7 +18,7 @@ Cualquier duda que tengas puedes enviarme un correo o un mensaje por el chat de 
 ¡Ánimo y espero que lo pasen bien!
 
 ## Sociales
-Sociales: 7 primeras diapositivas. Escribir 10 características de los egipcios.
+Sociales: 7 primeras [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/LA%20EDAD%20ANTIGUA.pptm) [PDF](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/LA%20EDAD%20ANTIGUA.pdf). Escribir 10 características de los egipcios.
 
 ## HARA
 HARA: documento adjunto en [comunicados](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/4%C2%BA%20de%20primaria%20Sesi%C3%B3n%203%20viernes%2022%20de%20mayo.pdf)
