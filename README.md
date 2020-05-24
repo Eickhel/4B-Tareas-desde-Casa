@@ -9,10 +9,10 @@ REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/e
 
 HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
 
-Lengua: Unidad 11, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pptx) [PDF](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pdf) 1 y 2, ap.2 de snapet
+Lengua: Unidad 11, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pdf) 1 y 2, ap.2 de snapet
 
 # Matemáticas
-Matemáticas: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [PDF](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf) 1 y 2, ap.1 (snappet)
+Matemáticas: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/blob/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf) 1 y 2, ap.1 (snappet)
 
 # Educación física
 Ed. Física: El Baile del Vivo
