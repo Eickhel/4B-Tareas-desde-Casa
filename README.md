@@ -3,6 +3,52 @@
 * auto-gen TOC:
 {:toc}
 
+# 26/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad, 11, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pdf) 3 y 4, ap. 3 y 4
+
+## Matemáticas
+Matemáticas: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf) 3 y 4, apartado 2
+
+## Inglés
+¡Hola! Espero que sigas bien. La propuesta de trabajo de hoy es Snappet. Te pido que vayas acabando la unidad "animals". Si ya lo has hecho, tienes nuevas actividades en "animal body parts". ¡Ánimo!
+
+---
+
+¡Hola! Espero que sigas bien y que estés disfrutando cada vez más de los ratitos que podemos salir, además estamos teniendo suerte con este buen tiempo. Te dejo la propuesta de tarea para estos días:
+1.	Aquí va este juego [https://wordwall.net/play/1598/857/918](https://wordwall.net/play/1598/857/918) Tienes que ordenar las letras correctamente. Concéntrate y fíjate bien.
+2.	Tienes una ficha para acabar con el repaso de los animales ([animals](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/26-05-2020/Animals.pdf)). La primera actividad es una comprensión auditiva, el audio también está adjunto ([listening](https://drive.google.com/file/d/1jMLQKK706qtjFe5XPmvx2WlxB1SRHW8v/view?usp=sharing)).
+3.	Por último, te dejo un vídeo para hacer un cangrejo con papel. ¡Es muy divertido! [https://www.youtube.com/watch?v=dMt7Glzlvv8](https://www.youtube.com/watch?v=dMt7Glzlvv8)
+
+Un besito con el pie 😊  
+
+
+## Francés
+Buenas tardes,
+
+Espero que hayan pasado un buen fin de semana.
+
+Comenzamos repasando el verbo avoir, que, aunque ya lo trabajamos en clase, no lo hemos visto a lo largo de este periodo excepcional. Lo trabajaremos de la misma forma que el verbo être. 
+
+Para hoy, les propongo leer y hacer la ficha [adjunta](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/26-05-2020/Le%20verbe%20avoir%2025-05-20%20(4%C2%BA).pdf), en la que se presentan un esquema con el verbo en presente y dos ejercicios.
+1. Unir cada forma del verbo avoir con su pronombre correspondiente.
+2. Completar las frases utilizando la forma del verbo avoir que corresponda.
+El miércoles les enviaré las correcciones de los ejercicios con un breve vídeo explicativo del verbo, pero primero me gustaría comprobar si se acuerdan de lo que vimos en clase.
+
+Gracias, ánimo y un saludo.
+
+## Educación artística
+Ed. Artística: Por el Dia de Canarias que será este fin de semana, te sugiero dibujar lo que te sugiera mientras escuchas, relacionado con tu tierra, Canarias.
+
+Isa Canaria [https://www.youtube.com/watch?v=V71_Jb8VoCo](https://www.youtube.com/watch?v=V71_Jb8VoCo)
+Polka Canaria [https://www.youtube.com/watch?v=GCNwFBia3vk](https://www.youtube.com/watch?v=GCNwFBia3vk)
+Pasodoble Islas Canarias [https://www.youtube.com/watch?v=y7mDsROA5kc](https://www.youtube.com/watch?v=y7mDsROA5kc)
+
+
 # 25/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
