@@ -3,6 +3,25 @@
 * auto-gen TOC:
 {:toc}
 
+# 27/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 11, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pdf) 5, apartados 5 y 6
+
+## Matemáticas
+Matemáticas: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf) 5 y 6, apartado 3
+
+## Emocrea
+
+Hoy veremos un vídeo que nos enseña que el que usa la violencia, no siempre gana y que hay que ser valiente para conseguir lo que quieres.
+
+[https://youtu.be/lIRMXJOtfMY](https://youtu.be/lIRMXJOtfMY)
+
+Una preciosa historia de amor que se representa en una obra de teatro donde los personajes no realizan el papel a los que estamos acostumbrados sino que es el dragón quien se queda con la princesa felizmente enamorados. Pero durante la representación el caballero quiere desprestigiar y burlarse del dulce y tímido dragón.
+
 # 26/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
