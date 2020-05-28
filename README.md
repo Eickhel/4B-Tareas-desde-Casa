@@ -3,6 +3,27 @@
 * auto-gen TOC:
 {:toc}
 
+# 29/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Sociales: Jeroglífico ([adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-05-2020/Actividades%20de%20Egipto%201.docx) imagen en comunicados). Hacer papiro con tu nombre según código del jeroglífico de alfabeto egipcio. Quemar por fuera -con presencia un adulto-Los egipcios tenían muchos amuletos, uno de los más conocidos era el escarabajo. Puedes hacer uno
+
+## Science
+Esta semana seguimos trabajando con el experimento propuesto de la semana pasada. Está haciendo mucho calor y el yogur de la ventana quizá se esté secando mucho, intenta que no esté muchas horas al sol y ponle el agua necesaria. ¡Tampoco hay que ahogarla!
+Ya me cuentan qué está yendo.
+
+## Naturales
+Naturales: [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/LA%20ENERG%C3%8DA%20TEMA%206%20pdf%20editado.pdf) 15, 16, 17 y 18 Observa estos experimentos y realiza uno o los que quieras y en una hoja escribe los pasos que has dado para hacerlo y cuál fue el resultado. Experimentos: 
+[https://youtube.com/watch?v=rJkCDPRFBXI](https://youtube.com/watch?v=rJkCDPRFBXI)
+[https://youtube.com/watch?v=gEpyPDBEzJI](https://youtube.com/watch?v=gEpyPDBEzJI)
+[https://youtube.com/watch?v=SQYTSkUr6ao](https://youtube.com/watch?v=SQYTSkUr6ao)
+
+## Tutoría
+Tutoría: [Documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/29-05-2020/3%C2%BA%20y%204%C2%BA%20velocidad%20lectora.pdf) adjunto en comunicaciones
+
 # 28/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
