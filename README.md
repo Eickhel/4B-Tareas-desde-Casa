@@ -3,6 +3,27 @@
 * auto-gen TOC:
 {:toc}
 
+# 28/05/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+HARA: Atención plena:Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 11, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pdf) 6, 7 y 8. Ap.7 Snappet
+
+## Matemáticas
+Matemáticas: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf) De la 7 a la 11, apartado 4 de Snappet
+
+## Religión
+Religión: Hoy recordaremos las partes de la misa. en comunicaciones pondremos el enlce de un video explicativo y un documento adjunto que lo explica. Simplemente es para que recordeis la celebración de la misa.
+
+[https://www.youtube.com/watch?v=9GIbRnkbtyg](https://www.youtube.com/watch?v=9GIbRnkbtyg)
+
+## Inglés
+¡Hola de nuevo! ¿Cómo estás? Espero que bien y con mucho ánimo. Les mandé el comunicado con la propuesta de trabajo para esta última semana de mayo. Tienen un PDF, un juego y una ficha ambientada en las festividad del Día de Canarias. Espero que les guste.
+Un fuerte abrazo y que tengas muy bien fin de semana 😊
+
+
 # 27/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
