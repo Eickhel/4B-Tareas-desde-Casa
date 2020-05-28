@@ -20,8 +20,36 @@ Religión: Hoy recordaremos las partes de la misa. en comunicaciones pondremos e
 [https://www.youtube.com/watch?v=9GIbRnkbtyg](https://www.youtube.com/watch?v=9GIbRnkbtyg)
 
 ## Inglés
-¡Hola de nuevo! ¿Cómo estás? Espero que bien y con mucho ánimo. Les mandé el comunicado con la propuesta de trabajo para esta última semana de mayo. Tienen un PDF, un juego y una ficha ambientada en las festividad del Día de Canarias. Espero que les guste.
+¡Hola de nuevo! ¿Cómo estás? Espero que bien y con mucho ánimo. Aquí te mando la propuesta de trabajo para esta última semana de mayo:
+
+1. Descarga el PDF ([clothes review](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-05-2020/Clothes%20review.pdf)) y lee bien las palabras. Son muy fáciles para que repases un poquito pero fíjate bien para que te salga bien el juego.
+
+2. Aquí lo tienes, espero que te guste: [https://kahoot.it/challenge/03006634?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1590602338096](https://kahoot.it/challenge/03006634?challenge-id=510fbc4a-68f2-469e-867a-f46ba365a500_1590602338096)
+
+3. Tienes una ficha, como ya sabes, el 30 de mayo es el día de Canarias así que la he ambientado un poquito. ([clothes 4º](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-05-2020/clothes%204%C2%BA.pdf))
+
+4. Recuerden que tienen trabajo en Snappet para que vayan haciendo.
 Un fuerte abrazo y que tengas muy bien fin de semana 😊
+
+P.D.: la próxima semana como ya saben empezamos con el horario de junio y las sesiones de inglés se reducen a dos horas semanales en vez de tres. Por este motivo, les enviaré propuestas de trabajo para un día y Snappet para otro.
+
+## Francés
+Buenas tardes,
+
+Espero que se encuentren todos bien 
+
+1. Continuamos trabajando el verbo avoir. Para ello, he elaborado un [vídeo](https://drive.google.com/file/d/1fGx5kP-HTjgmxUMoWPCSj4MugDuVnyCQ/view?usp=sharing) explicativo y una [ficha](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/28-05-2020/Le%20verbe%20avoir%2027-04-20%20(4%C2%BA).pdf) que consta de dos ejercicios:
+
+    Completa con el verbo avoir o con el pronombre correspondiente.
+    Ej:
+
+    ……… avons --> Nous avons
+
+    Nous ……….  -->Nous avons
+
+2. Elige la opción correcta. Deben elegir, entre las palabras que se proponen, la forma del verbo avoir que crean va con cada sujeto.
+
+Gracias, ánimo y buen fin de semana. 
 
 
 # 27/05/2020
