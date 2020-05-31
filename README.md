@@ -3,6 +3,25 @@
 * auto-gen TOC:
 {:toc}
 
+# 01/06/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/TEMA%2011%20DE%20LENGUA%20editado.pdf) 11, ap. 8 y 9 de Snappet
+
+## Educación física
+Ed. Física: 
+[https://youtu.be/RzvXipjAcmI](https://youtu.be/RzvXipjAcmI)
+
+[https://youtu.be/g7P1j1fs3uw](https://youtu.be/g7P1j1fs3uw)
+
+[https://youtu.be/mA9Gv8dSkAQ](https://youtu.be/mA9Gv8dSkAQ)
+
+## Matemáticas
+Matemáticas: Unidad 12 [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf), apartado de “cálculo”. Recordar la prioridad de la multiplicación y división.
+
 # 29/05/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
