@@ -3,6 +3,50 @@
 * auto-gen TOC:
 {:toc}
 
+# 02/06/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Unidad 11, ap.1 (comp.lectora)
+
+## Matemáticas
+Matemáticas: Unidad 12, apartado de problemas (Snappet)
+
+## Francés
+Buenas tardes, 
+
+Espero que hayan pasado un buen fin de semana. 
+
+Como ya les habrán comunicado los tutores, la asignatura de francés se reduce a una sesión semanal. Mandaré las propuestas los lunes por la tarde o los martes por la mañana, ya que la idea es que la trabajen los martes, pero dada la complicada situación cada familia se organiza según le convenga. 
+
+Durante este mes vamos a trabajar los contenidos de una forma más lúdica. Para esta semana les propongo: 
+
+1. **Juego de las preposiciones**. Deben clicar en los recuadros y escribir la preposición de lugar correspondiente. Pista: Un conejo está a la derecha y otro a la izquierda, no al lado. 
+Para acceder es necesario entrar en este enlace [game.educaplay.com](game.educaplay.com) e introducir el código pin: 865175. 
+
+2. **Juego sobre el vocabulario del material escolar**. Una vez que hayan pulsado sobre el mando para comenzar el juego, a la derecha encontrarán una imagen, una pregunta y tres opciones. Deben clicar sobre la opción correcta, si es así destruirán una nave y pasarán de nivel, pero si fallan deberán volver a empezar. 
+
+Para acceder solamente es necesario entrar en este enlace: [https://view.genial.ly/5ed388f5bc3fa411df14ecba/game-en-classe-4o](https://view.genial.ly/5ed388f5bc3fa411df14ecba/game-en-classe-4o)
+
+3. **Juego sobre el material escolar y los artículos**. Deben unir las columnas para encontrar un objeto escolar con su artículo correspondiente. 
+
+Para acceder es necesario entrar en este enlace [game.educaplay.com](game.educaplay.com) e introducir el código pin: 902780
+
+Los juegos estarán disponibles hasta el viernes a las 13.00 horas. Una vez más, les pido que entren con su nombre y el curso para poder identificarlos. 
+
+Muchas gracias. Un saludo. 
+
+## Inglés
+¡Hola! Espero que sigas bien y con mucho ánimo que estamos empezando junio 😊. Hoy vamos a seguir repasando el vocabulario referente a la ropa:
+1.	Para repasar te dejo este juego: [https://quizizz.com/join?gc=2668899](https://quizizz.com/join?gc=2668899)
+2.	También te propongo esta ficha, tiene dos caras ([clothes](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/02-06-2020/Clothes.pdf))
+3.	Busca en internet o en una revista a alguien que te guste. Puedes copiarlo en una hoja, imprimirlo o recortarlo y pegarlo en una hoja. Cuando lo tengas, escribe el nombre de la ropa que lleve puesta. Te dejo un ejemplo adjunto en el comunicado. ([example](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/02-06-2020/example.pdf))
+
+Un abrazo muy fuerte
+
+
 # 01/06/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
