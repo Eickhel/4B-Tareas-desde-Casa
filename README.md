@@ -20,7 +20,7 @@ Ed. Física:
 [https://youtu.be/mA9Gv8dSkAQ](https://youtu.be/mA9Gv8dSkAQ)
 
 ## Matemáticas
-Matemáticas: Unidad 12 [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pptx) [[PDF]](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/25-05-2020/LAS%20FIGURAS%20GEOM%C3%89TRICAS%20%20TEMA%2012%20editado.pdf), apartado de “cálculo”. Recordar la prioridad de la multiplicación y división.
+Matemáticas: Unidad 12 apartado de “cálculo”. Recordar la prioridad de la multiplicación y división.
 
 # 29/05/2020
 ## Lengua
