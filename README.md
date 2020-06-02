@@ -3,6 +3,23 @@
 * auto-gen TOC:
 {:toc}
 
+# 03/06/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Unidad 12, diapositivas 1 y 2, Snappet apartado 2
+
+## Educación Emocional
+PIPER Superar los miedos
+[https://vimeo.com/215452791](https://vimeo.com/215452791)
+
+El protagonista de este precioso corto de Pixar es Piper, un pajarito con miedo a abandonar el nido y aventurarse a cazar almejas en la playa. Es una historia que versa sobre los miedos y cómo vencerlos, que hará que los niños reflexionen sobre la importancia de superar sus temores.
+
+## Matemáticas
+Matemáticas: Unidad 12, apartados de repaso y examen
+
 # 02/06/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
