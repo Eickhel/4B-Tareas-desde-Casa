@@ -9,7 +9,7 @@ REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/e
 
 Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
 
-Lengua: Unidad 12, diapositivas 1 y 2, Snappet apartado 2
+Lengua: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-06-2020/TEMA%2012%20LENGUA%20(1).pptx) 1 y 2, Snappet apartado 2
 
 ## Educación Emocional
 PIPER Superar los miedos
