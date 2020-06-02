@@ -24,7 +24,7 @@ Como ya les habrán comunicado los tutores, la asignatura de francés se reduce 
 Durante este mes vamos a trabajar los contenidos de una forma más lúdica. Para esta semana les propongo: 
 
 1. **Juego de las preposiciones**. Deben clicar en los recuadros y escribir la preposición de lugar correspondiente. Pista: Un conejo está a la derecha y otro a la izquierda, no al lado. 
-Para acceder es necesario entrar en este enlace [game.educaplay.com](game.educaplay.com) e introducir el código pin: 865175. 
+Para acceder es necesario entrar en este enlace [https://game.educaplay.com](https://game.educaplay.com) e introducir el código pin: 865175. 
 
 2. **Juego sobre el vocabulario del material escolar**. Una vez que hayan pulsado sobre el mando para comenzar el juego, a la derecha encontrarán una imagen, una pregunta y tres opciones. Deben clicar sobre la opción correcta, si es así destruirán una nave y pasarán de nivel, pero si fallan deberán volver a empezar. 
 
@@ -32,7 +32,7 @@ Para acceder solamente es necesario entrar en este enlace: [https://view.genial.
 
 3. **Juego sobre el material escolar y los artículos**. Deben unir las columnas para encontrar un objeto escolar con su artículo correspondiente. 
 
-Para acceder es necesario entrar en este enlace [game.educaplay.com](game.educaplay.com) e introducir el código pin: 902780
+Para acceder es necesario entrar en este enlace [https://game.educaplay.com](https://game.educaplay.com) e introducir el código pin: 902780
 
 Los juegos estarán disponibles hasta el viernes a las 13.00 horas. Una vez más, les pido que entren con su nombre y el curso para poder identificarlos. 
 
