@@ -3,6 +3,22 @@
 * auto-gen TOC:
 {:toc}
 
+# 04/06/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-06-2020/TEMA%2012%20LENGUA%20(1).pptx) 3 y 4. Ap.3 y 4 Snappet
+
+## Religión
+Hoy en Religión veremos un [video](https://www.youtube.com/watch?v=HTNgQMsDax8) y adjuntamos un [archivo] donde se describe los objetos y vestimentas de la celebración Eucarística. Te ayudará a conocer un poco mejor cada elemento.
+
+## Matemáticas
+Matemáticas: Adjunto la tarea en comunicados.
+
+Intenta hacerla tú solo, pero si tienes dudas puedes consultar el libro.
+
 # 03/06/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
