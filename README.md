@@ -3,6 +3,38 @@
 * auto-gen TOC:
 {:toc}
 
+# 05/06/2020
+## Lengua
+REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+## Sociales
+Sociales: Leer [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/LA%20EDAD%20ANTIGUA.pptm) [PDF](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/22-05-2020/LA%20EDAD%20ANTIGUA.pdf) que quedan de la 8 al final. Escribe 5 características que consideres más importantes de la civilización romana.
+
+## Tutoría
+Hara: documento [adjunto](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/06-06-2020/4%C2%BA%20de%20primaria%20Sesi%C3%B3n%204%20viernes%205%20de%20junio.pdf) en comunicados
+
+## Educación artística
+Ed. Artística: Audición Banda sonora de Piratas del Caribe
+
+[https://www.youtube.com/watch?v=KsimX_A2Uyo](https://www.youtube.com/watch?v=KsimX_A2Uyo)
+
+## Naturales
+Naturales: El sonido. [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/LA%20ENERG%C3%8DA%20TEMA%206%20pdf%20editado.pdf) de la 19 a la 22.
+
+4ª Sesión “EL SONIDO”
+
+Diapositivas 19, 20, 21 y 22
+
+Observa estos experimentos y realiza uno o los que quieras y en una hoja escribe los pasos que has dado para hacerlo y cuál fue el resultado.
+
+Experimentos: 
+
+[https://youtube.com/watch?v=RxWjSrS4UsU](https://youtube.com/watch?v=RxWjSrS4UsU)
+
+[https://youtube.com/watch?v=RxWjSrS4UsU](https://youtube.com/watch?v=RxWjSrS4UsU)
+
 # 04/06/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
