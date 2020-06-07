@@ -3,6 +3,21 @@
 * auto-gen TOC:
 {:toc}
 
+# 07/06/2020
+## Lengua
+Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-08&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-08&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-06-2020/TEMA%2012%20LENGUA%20(1).pptx) 5 y 6. Ap. 5 y 6 de Snappet
+
+## Educación Física
+Ed. Física: Yoga para niños:
+[https://youtu.be/feJdmeEV9YQ](https://youtu.be/feJdmeEV9YQ)
+
+## Matemáticas
+Hoy repasaremos y acabaremos aquellos apartados que os faltan; y los que lo hayan acabado todo, he abierto unos ejercicios que trabajan competencialmente. Hay que leer bien, ir paso a paso. Se llama: "La carrera".
+
 # 05/06/2020
 ## Lengua
 REFLEXIÓN: [http://reflexiondeldia.eu/es/index.php](http://reflexiondeldia.eu/es/index.php)
