@@ -3,6 +3,21 @@
 * auto-gen TOC:
 {:toc}
 
+# 10/06/2020
+Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-10&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-10&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-06-2020/TEMA%2012%20LENGUA%20(1).pptx), Snappet apartado 8
+
+## Educación Emocional
+EMOCREA
+Hoy veremos lo importante que es ser SOLIDARIOS y el COMPARTIR con los demás, porque nos hace más felices.
+[https://www.youtube.com/watch?v=LHwJAQ6_q8I](https://www.youtube.com/watch?v=LHwJAQ6_q8I)
+
+## Matemáticas
+Matemáticas: Tienes la sesión de hoy más otras 3 (jueves, lunes y martes) para hacer el robot. Hoy puedes empezar a hacerlo. Recuerda que debes utilizar figuras geométricas como las trabajadas o similares.
+
 # 09/06/2020
 ## Lengua
 Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-09&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-09&idCategoria=13)
