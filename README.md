@@ -20,7 +20,7 @@ Matemáticas: Diseño o boceto de un robot. Haz una lista de materiales necesari
 2.	Te dejo dos juegos para que trabajes un poco este temario: 
     1.	Es una competición de natación, tienes que pinchar en la respuesta correcta [https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach](https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach)
     2.	Para este juego tienes que abrir bien tus ojos y fijarte bien en las palabras. Te irán saliendo y deberás de elegir correcto o incorrecto. ¡Cuidado porque hay algunas palabras que son incorrectas por solo una letrita mal! [https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach](https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach)
-3.	Te dejo una ficha para trabajar (at the beach)
+3.	Te dejo una ficha para trabajar ([at the beach](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/09-06-2020/At%20the%20beach%20.pdf))
 4.	Y, por último, te envío una manualidad por si te apetece hacerla. [https://www.youtube.com/watch?v=Ow0x9XbN_pM](https://www.youtube.com/watch?v=Ow0x9XbN_pM) No necesitas papeles de colores, puedes pintarlo todo tu, añadir más cosas. Y te prepongo que en escribas el nombre en inglés de aquellas palabras que conozcas.
 
 Un fuerte abrazo
