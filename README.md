@@ -3,6 +3,46 @@
 * auto-gen TOC:
 {:toc}
 
+# 09/06/2020
+## Lengua
+Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-09&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-09&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-06-2020/TEMA%2012%20LENGUA%20(1).pptx), diapositivas 6, 7 y 8. Snappet ap.7
+
+## Matemáticas
+Matemáticas: Diseño o boceto de un robot. Haz una lista de materiales necesarios. Procura pensar y apuntar materiales reciclados o reutilizados (botes de yogur, rollos de cartón del papel higiénico o servilletas, tetrabriks…). También vete escribiendo lo que vas a necesitar, como tijeras, pegamento, pinturas, etc.Este trabajo es para hacer en varias sesiones. Te iré informando de los pasos a seguir.
+
+## Inglés
+¡Hola! Espero que sigan bien y que hayan disfrutado de la semana. Ya casi estamos terminando el curso y se acerca el veranito así que, ¿qué mejor que repasar el vocabulario de la playa?
+1.	Te dejo un [Power Point](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/09-06-2020/At%20the%20beach%20POWER%20POINT.pdf) para que repases las palabras, habrá alguna nueva, pero son facilitas
+2.	Te dejo dos juegos para que trabajes un poco este temario: 
+    1.	Es una competición de natación, tienes que pinchar en la respuesta correcta [https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach](https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach)
+    2.	Para este juego tienes que abrir bien tus ojos y fijarte bien en las palabras. Te irán saliendo y deberás de elegir correcto o incorrecto. ¡Cuidado porque hay algunas palabras que son incorrectas por solo una letrita mal! [https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach](https://view.genial.ly/5ed50288bdcde00d22fdc191/game-at-the-beach)
+3.	Te dejo una ficha para trabajar (at the beach)
+4.	Y, por último, te envío una manualidad por si te apetece hacerla. [https://www.youtube.com/watch?v=Ow0x9XbN_pM](https://www.youtube.com/watch?v=Ow0x9XbN_pM) No necesitas papeles de colores, puedes pintarlo todo tu, añadir más cosas. Y te prepongo que en escribas el nombre en inglés de aquellas palabras que conozcas.
+
+Un fuerte abrazo
+
+## Francés
+Buenas tardes, 
+
+Espero que hayan pasado un buen fin de semana. 
+Continuamos repasando los contenidos a través de juegos. Para esta semana les propongo:  
+1. Juego de verbos. El juego consiste en ordenar las palabras en grupos. Para comenzar, les indicará un verbo y deben hacer clic encima de todas las palabras que pertenezcan a ese verbo. 
+
+    Para acceder es necesario entrar en este enlace [https://game.educaplay.com](https://game.educaplay.com) e introducir el código pin: **170029**
+
+2. Juego de repaso general. En la parte derecha aparecerá una pregunta (con o sin imagen según sea necesario) y deben responder marcando una de las dos opciones que aparecen en los recuadros rosas. Si la respuesta es correcta, pasarán directamente a la siguiente pregunta y el puzle se irá completando, pero en el caso contrario, les saldrá una advertencia de que la pieza seleccionada no encaja, lo que quiere decir que la respuesta es incorrecta.
+Para acceder solamente es necesario entrar en este enlace: [https://view.genial.ly/5ed3c3dbbc3fa411df14f219/game-frances-4o](https://view.genial.ly/5ed3c3dbbc3fa411df14f219/game-frances-4o)
+ 
+Al segundo juego pueden jugar tantas veces como deseen, lo dejaré abierto indefinidamente, mientras que el primero se cerrará el viernes a las 13.00 horas. Una vez más, les pido que entren con su nombre y el curso para poder identificarlos.  
+ 
+Muchas gracias. Un saludo 
+
+
+
 # 07/06/2020
 ## Lengua
 Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-08&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-08&idCategoria=13)
