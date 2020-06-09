@@ -4,6 +4,7 @@
 {:toc}
 
 # 10/06/2020
+## Lengua
 Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-10&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-10&idCategoria=13)
 
 Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
