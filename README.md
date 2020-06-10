@@ -3,6 +3,23 @@
 * auto-gen TOC:
 {:toc}
 
+# 11/06/2020
+## Lengua
+Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-11&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-11&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Lengua: Unidad 12, [diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/03-06-2020/TEMA%2012%20LENGUA%20(1).pptx), Snappet ap.9
+
+## Religión
+[Documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/11-06-2020/Religi%C3%B3n%20actividad%20final.docx)
+
+## Matemáticas
+Matemáticas: Continúa con el robot. Vete pensando en como llamarlo y qué finalidad crees que podría tener, para qué crees que podría servir o qué podría hacer (aunque sea con un poco de imaginación)
+
+## Inglés
+Hello! Tienen actividades nuevas en la carpeta de "vocabulary" para trabajar. Un abrazo y disfruten del fin de semana.
+
 # 10/06/2020
 ## Lengua
 Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-10&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-10&idCategoria=13)
