@@ -3,6 +3,32 @@
 * auto-gen TOC:
 {:toc}
 
+# 12/06/2020
+## Lengua
+Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-12&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-12&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...
+
+Sociales: En una hoja, debes escribir la fecha de tu nacimiento con números romanos XX/XX/XXXX. Hazte una corona de papel o similar, como símbolo de los emperadores romanos. Aquí tienes una imagen sencilla de ejemplo
+
+[https://www.pinterest.es/pin/463659724112255027/](https://www.pinterest.es/pin/463659724112255027/)
+
+## Tutoría
+[Documento](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/12-06-2020/3%C2%BA%20y%2041Tutor%C3%ADa%20viernes%2012%20junio.pdf)
+
+## Educación Artística
+Ed. Artística: Coge una regla, escuadra o cartabón, para hacer un dibujo con líneas rectas. Divide la hoja a la mitad para que colorees un lado con colores fríos y el otro con colores cálidos.
+Si no te acuerdas muy bien, puedes consultar el siguiente enlace:
+
+[https://artes.uncomo.com/articulo/cuales-son-los-colores-frios-24347.html](https://artes.uncomo.com/articulo/cuales-son-los-colores-frios-24347.html)
+
+## Ciencias Naturales
+Naturales: La electricidad.
+5ª Sesión “LA ELECTRICIDAD”Diapositivas 23, 24, 25 y 26Puedes probar un experimento muy sencillo de electricidad estática: Corta pequeños papelitos, más o menos del tamaño de tus uñas. Si son usados mejor (por eso de reutilizar…). Déjalos sobre la mesa. Ahora coge un boli que tengas a mano y frótalo, tumbado, en tu pantalón o camiseta, de forma que el plástico roce muchas veces con la tela de la ropa. Pasa el boli por los trocitos de papel, tocándolos. ¡Deberían querer pegarse al boli!
+
+Si tienes materiales y, con la ayuda de una persona mayor, puedes hacerun circuito eléctrico como se muestra. Es algo más complejo. Si no tienes los materiales, no te preocupes, en los próximos cursos harás alguno.
+
+
 # 11/06/2020
 ## Lengua
 Reflexión [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-11&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-11&idCategoria=13)
