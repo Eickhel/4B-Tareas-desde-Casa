@@ -24,7 +24,7 @@ Si no te acuerdas muy bien, puedes consultar el siguiente enlace:
 
 ## Ciencias Naturales
 Naturales: La electricidad.
-5ª Sesión “LA ELECTRICIDAD”Diapositivas 23, 24, 25 y 26Puedes probar un experimento muy sencillo de electricidad estática: Corta pequeños papelitos, más o menos del tamaño de tus uñas. Si son usados mejor (por eso de reutilizar…). Déjalos sobre la mesa. Ahora coge un boli que tengas a mano y frótalo, tumbado, en tu pantalón o camiseta, de forma que el plástico roce muchas veces con la tela de la ropa. Pasa el boli por los trocitos de papel, tocándolos. ¡Deberían querer pegarse al boli!
+5ª Sesión “LA ELECTRICIDAD” [Diapositivas](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/23-04-2020/LA%20ENERG%C3%8DA%20TEMA%206%20pdf%20editado.pdf) 23, 24, 25 y 26Puedes probar un experimento muy sencillo de electricidad estática: Corta pequeños papelitos, más o menos del tamaño de tus uñas. Si son usados mejor (por eso de reutilizar…). Déjalos sobre la mesa. Ahora coge un boli que tengas a mano y frótalo, tumbado, en tu pantalón o camiseta, de forma que el plástico roce muchas veces con la tela de la ropa. Pasa el boli por los trocitos de papel, tocándolos. ¡Deberían querer pegarse al boli!
 
 Si tienes materiales y, con la ayuda de una persona mayor, puedes hacerun circuito eléctrico como se muestra. Es algo más complejo. Si no tienes los materiales, no te preocupes, en los próximos cursos harás alguno.
 
