@@ -3,6 +3,21 @@
 * auto-gen TOC:
 {:toc}
 
+# 15/06/2020
+## Lengua
+Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Unidad de lectura “burros, más que burros”. En [comunicados](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/15-06-2020/4%C2%BAEPO_LI_dosburros_estudiante.pdf)
+
+## Educación Física
+Ed. Física: Paseo familiar. Te recomiendo que, en algún momento del día, salgas a pasear con algún miembro de tu familia. Llévate, si puedes, tu patinete, patines, bici…Procura que el recorrido sea de al menos 1 hora. Si tienes un reloj reloj/pulsera cuentapasos, dinos cuántos pasos o la distancia que has hecho en el tiempo que hayas estado
+
+## Matemáticas
+Matemáticas: Continúa con el robot. Mide su la altura y ancho
+
+
 # 12/06/2020
 ## Lengua
 Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-12&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-12&idCategoria=13)
