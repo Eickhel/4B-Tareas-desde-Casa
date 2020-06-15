@@ -3,6 +3,45 @@
 * auto-gen TOC:
 {:toc}
 
+# 16/06/2020
+## Lengua
+Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Unidad de [lectura](https://github.com/Eickhel/4B-Tareas-desde-Casa/raw/master/16-06-2020/4%C2%BAEPO_FC_termometro-emociones_estudiante.pdf). Enviar por comunicados.
+
+## Matemáticas
+Matemáticas: Terminar el robot.
+
+## Inglés
+¡Hola a todos! Ya estamos en la última semana de clase, distinta, pero la última. Antes de nada, quería darles las gracias a todos y cada uno de ustedes por estos dos cursos que hemos pasado juntos. Ha sido una promoción increíble, de las que recordaré siempre por todo el cariño que me han dado cada día. Gracias por dejarme aprender de ustedes, espero que ustedes también lo hayan hecho conmigo 😊.
+
+Gracias también a los padres y como no, gracias por estos últimos meses. He organizado cada sesión con un poquito de todo para que cada familia pudiera adaptarse a ella, pero siempre con mucha ilusión y mirando por los niños. Ha sido un nuevo aprendizaje para mí, así que pido disculpas por aquellos fallitos que pude cometer. ¡Nunca imaginé tener sesiones de clases así! Espero que los chicos hayan disfrutado aprendiendo, al igual que lo he hecho yo organizando y creando las tareas.
+
+Para el día de hoy les dejo un juego final. Es un “escape room” con un pequeño repaso de lo trabajado durante este período. Prepara una hojita donde anotar lo que se te pide. Este es el enlace:
+
+[https://view.genial.ly/5ee618c49a05850d6d9957e2/game-breakout-end-of-the-year-4th](https://view.genial.ly/5ee618c49a05850d6d9957e2/game-breakout-end-of-the-year-4th)
+
+Si alguna familia quiere el premio final como recuerdo que me lo haga saber que se lo envío.
+Espero que todos sigan bien y que puedan disfrutar de las vacaciones como se merecen tras todo este esfuerzo. Y chicos, mucho ánimo para quinto, les va a ir genial y yo les echaré mucho de menos.
+
+Un abrazo virtual a todos, espero que podamos vernos pronto.
+
+
+## Francés
+¡Buenas tardes! 
+
+Para terminar el curso, les propongo un juego de repaso general, basado en el conocido rosco de Pasapalabra. Pueden acceder haciendo clic en este enlace [https://es.educaplay.com/recursos-educativos/5981857-pasapalabra_frances_4.html](https://es.educaplay.com/recursos-educativos/5981857-pasapalabra_frances_4.html) entrando en este otro enlace [https://game.educaplay.com](https://game.educaplay.com) e introduciendo el código pin: 522601 
+
+Deben fijarse bien en la parte derecha, ya que les dirá qué es lo que deben escribir. Además, les dirá si la palabra empieza por la letra en la que se encuentran (COMMENCE A) o si solamente contiene esa letra (CONTIENT A). Podrán contestar, escribiendo en el recuadro y haciendo clic en el botón "vérifier", o pasar a la siguiente letra para volver más tarde, haciendo clic en el botón "passer". Si la respuesta es correcta aparecerá en verde, mientras que, si no lo es, aparecerá en rojo. 
+
+Disponen de 5 minutos para completar el rosco y solo podrán fallar 10 veces. En el caso de superar el número de fallos tendrán que volver a empezar. 
+
+Espero que les guste. Un abrazo. 
+
+
+
 # 15/06/2020
 ## Lengua
 Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
