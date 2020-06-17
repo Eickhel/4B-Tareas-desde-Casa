@@ -3,6 +3,19 @@
 * auto-gen TOC:
 {:toc}
 
+# 17/06/2020
+Reflexión:[http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Coge un libro, revista, cómic, periódico, etc. Lee media hora, aproximadamente. Controla el tiempo con un reloj que lleves encima o que tengas en casa.
+
+## Educación Emocional
+Emocrea: Siéntate en un lugar tranquilo. Pon una música tranquila que te guste, intenta recordar y pensar en las actividades que hemos trabajado en emocrea (vídeos de amistad, de ayuda, los miedos, el grillo…). ¿Crees que te han ayudado estas actividades a conocerte mejor y a ser mejor persona? Si la respuesta es positiva, debes ir a dar un abrazo a las personas que estén contigo en casa.
+
+## Matemáticas
+Matemáticas: Hoy debería estar el robot acabado. Saca algunas fotos (o vídeo) para que me las puedas enviar.
+
 # 16/06/2020
 ## Lengua
 Reflexión: [http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
