@@ -3,7 +3,27 @@
 * auto-gen TOC:
 {:toc}
 
+# 18/06/2020
+## Lengua
+Reflexión:[http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
+
+Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
+
+Lengua: Revisa las actividades de Snappet que te falten. En caso de tener todo al día, puedes tomarte un descanso de la forma que creas más conveniente.
+
+## Religión
+Religión: Escribe unas palabras de agradecimiento o algo que quieras decir o expresar sobre lo que te ha parecido este curso, a modo de resumen. Intenta recordar y escribir algún buen momento que recuerdes especialmente de estos 2 últimos cursos.
+
+## Matemáticas
+Matemáticas: Revisa las actividades de Snappet que no tengas al día. En caso de no haber acabado el robot o sacado fotos…¡Házlo!
+
+## Inglés
+Hello! Espero que sigan bien. He añadido nuevas actividades a Snappet. A lo largo de la próxima semana organizaré más lecciones ya que la plataforma estará disponible hasta el 15 de agosto. Les ánimo a seguir trabajando durante el verano para repasar.Les recuerdo mi correo para cualquier cosa que necesiten: [sleon@lasallesanildefonso.es](mailto:sleon@lasallesanildefonso.es)
+
+Un abrazo y ¡feliz verano!
+
 # 17/06/2020
+## Lengua
 Reflexión:[http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13](http://reflexiondeldia.eu/es/reflexion.php?fecha=2020-06-15&idCategoria=13)
 
 Hara: Atención plena. Antes de empezar a trabajar tomamos consciencia de nuestro cuerpo, nos relajamos y respiramos profundamente durante 2 minutos con los ojos cerrados...A continuación nos levantaremos de nuestra silla estiraremos para ir movilizando todo nuestro cuerpo...Podemos acompañar el momento con música tranquila que nos guste.
